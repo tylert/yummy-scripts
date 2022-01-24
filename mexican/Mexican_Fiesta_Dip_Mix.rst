@@ -21,6 +21,7 @@ Makes 2 cups
 1 cup mayonnaise or low-fat mayonnaise
 1 cup sour cream or low-fat yogurt
 
-In a medium mixing bowl combine the Dip Mix with the mayonnaise and sour cream. Whisk the mixture until smooth. Refrigerate for 2 to 4 hours.
+In a medium mixing bowl combine the Dip Mix with the mayonnaise and sour cream.
+Whisk the mixture until smooth. Refrigerate for 2 to 4 hours.
 
 Serve with tortilla chips or fresh vegetables 

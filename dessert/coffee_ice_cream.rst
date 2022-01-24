@@ -15,7 +15,9 @@ Ingredients:
 
 Directions: 
 
-Mix milk, sugar, and coffee with an electric mixer or whisk so that sugar and coffee dissolve in the milk.
+Mix milk, sugar, and coffee with an electric mixer or whisk so that sugar and
+coffee dissolve in the milk.
+
 Add cream and vanilla and stir.
 Pour into your ice cream maker.
 Mix until thick about 25-30 minutes or according to manufacturer's instructions.

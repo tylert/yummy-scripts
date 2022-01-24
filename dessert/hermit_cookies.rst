@@ -16,5 +16,8 @@ Add eggs, one at a time.
 Mix flour, baking soda, spices and salt together in a separate bowl.
 Add flour mixture to egg mixture and mix well.
 Mix in raisins and chopped dates.
-Shape dough into one-inch balls with a scoop, or with spoons and your hand, and place on parchment-lined cookie sheets.
+
+Shape dough into one-inch balls with a scoop, or with spoons and your hand, and
+place on parchment-lined cookie sheets.
+
 Bake at 350 F for 10 to 14 minutes.

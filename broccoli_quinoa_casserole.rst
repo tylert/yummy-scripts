@@ -13,7 +13,10 @@ Salt and pepper, to taste
 8 oz. sharp cheddar cheese, shredded
 
 Preheat oven to 400.
-In a medium sauce pan, cook the quinoa in water with a generous pinch of salt, according to package, directions and then set aside.
+
+In a medium sauce pan, cook the quinoa in water with a generous pinch of salt,
+according to package, directions and then set aside.
+
 In a large pot, add the broccoli and a couple of inches of water.
 Cover the pot, bring to a boil for 1-2 minutes, and then drain and rinse with cold water.
 Return the drained broccoli to the large pot and add the quinoa.

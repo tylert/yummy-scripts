@@ -10,7 +10,12 @@ pinch red pepper flakes
 2 tsp. lemon zest
 
 
-Preheat oven to 400°. Place green beans into a shallow baking dish or skillet. Pour cream over beans and scatter garlic. 
+Preheat oven to 400°. Place green beans into a shallow baking dish or skillet.
+Pour cream over beans and scatter garlic. 
+
 Season with salt and red pepper flakes.
-Sprinkle with mozzarella and Parmesan and bake until beans are tender and cheese is melted, 25-30 minutes.
+
+Sprinkle with mozzarella and Parmesan and bake until beans are tender and
+cheese is melted, 25-30 minutes.
+
 If desired, broil until cheese is browned. Garnish with more parm and serve.

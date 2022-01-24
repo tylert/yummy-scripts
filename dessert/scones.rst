@@ -36,6 +36,8 @@ vanilla extract
 
 Mix all dry ingredients and cut in butter.  Add in remaining flavour ingredients.
 Mix milk and vanilla flavouring together and pour over dry ingredients.
-Mix with fork until all liquid is absorbed.  Roll small balls in your palms, flatten on a cookie sheet.
+
+Mix with fork until all liquid is absorbed.  Roll small balls in your palms,
+flatten on a cookie sheet.
 
 Bake for 11 minutes at 425 F (convection oven).

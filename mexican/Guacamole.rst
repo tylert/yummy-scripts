@@ -1,5 +1,4 @@
 Guacamole
----------
 
 1/4 medium red onion, diced
 1/4 medium tomato, seeds removed, finely-diced

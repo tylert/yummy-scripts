@@ -21,8 +21,14 @@ Lemon wedges
 
 Preparation
 
-Heat vegetable oil in heavy large pot over medium-high heat. Add onions and cook until golden brown, stirring frequently, about 15 minutes. Add garlic and sauté 2 minutes. Add garam masala and next 4 ingredients; stir 1 minute. Add lentils; stir until coated. Add veggie broth. Bring soup to boil; reduce heat to medium and simmer until lentils are very tender, about 20 minutes. Discard bay leaves.
+Heat vegetable oil in heavy large pot over medium-high heat. Add onions and
+cook until golden brown, stirring frequently, about 15 minutes. Add garlic and
+sauté 2 minutes. Add garam masala and next 4 ingredients; stir 1 minute. Add
+lentils; stir until coated. Add veggie broth. Bring soup to boil; reduce heat
+to medium and simmer until lentils are very tender, about 20 minutes. Discard
+bay leaves.
        
-Working in batches, puree soup in blender until smooth. Return to pot. Stir in coconut milk, and lemon juice. Season to taste with salt and pepper.
+Working in batches, puree soup in blender until smooth. Return to pot. Stir in
+coconut milk, and lemon juice. Season to taste with salt and pepper.
 
 Divide rice among bowls. Pour soup over. Garnish with lemon wedges; serve. 

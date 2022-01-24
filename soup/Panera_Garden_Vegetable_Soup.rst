@@ -10,23 +10,23 @@ Total Time: 60 minutes
 
 Ingredients:
 
-    6 cups vegetable broth
-    1/2 cup pearled barley
-    2 Tablespoons olive oil
-    1/2 onion, peeled and diced (about 3/4 cup)
-    1/2 red pepper, diced (about 1/2 cup)
-    6 large garlic cloves, minced
-    1/2 head of cauliflower, cut into florets (about 2 cups)
-    8 ounces wax beans or green beans, trimmed and chopped into bite-sized pieces (about 1 3/4 cups)
-    16 ounce can chickpeas, rinsed and drained
-    28 ounce can diced tomatoes
-    1 teaspoon dried thyme
-    1 1/2 to 2 teaspoons dried oregano
-    1 teaspoon salt
-    1/2 teaspoon pepper
-    4 large swiss chard stems, remove stems and chop (about 2 cups)
-    2 small zucchini, diced (about 2 1/2 cups)
-    store-bought or homemade pesto (optional, for serving)
+6 cups vegetable broth
+1/2 cup pearled barley
+2 Tablespoons olive oil
+1/2 onion, peeled and diced (about 3/4 cup)
+1/2 red pepper, diced (about 1/2 cup)
+6 large garlic cloves, minced
+1/2 head of cauliflower, cut into florets (about 2 cups)
+8 ounces wax beans or green beans, trimmed and chopped into bite-sized pieces (about 1 3/4 cups)
+16 ounce can chickpeas, rinsed and drained
+28 ounce can diced tomatoes
+1 teaspoon dried thyme
+1 1/2 to 2 teaspoons dried oregano
+1 teaspoon salt
+1/2 teaspoon pepper
+4 large swiss chard stems, remove stems and chop (about 2 cups)
+2 small zucchini, diced (about 2 1/2 cups)
+store-bought or homemade pesto (optional, for serving)
 
 Directions:
 

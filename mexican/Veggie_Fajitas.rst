@@ -1,5 +1,4 @@
 Vegetarian Fajitas
-------------------
 
 portabello mushrooms
 1/2 or 1 clove garlic

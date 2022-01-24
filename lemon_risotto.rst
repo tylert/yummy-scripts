@@ -21,14 +21,17 @@ the mixture for about 5 minutes, making sure it doesn't stick. Mix
 in the rice, stirring to give it a good coating of oil and butter.
 Meanwhile, heat the stock in another saucepan and keep it at the
 simmering point.
+
 Put a ladleful of the stock into the rice and keep stirring until the
 stock is absorbed. Then add another ladleful and stir again.
 Continue doing this until the rice is al dente. You may not need all
 of the stock, equally, you may need to add hot water from the
 kettle.
+
 Mix the lemon zest and the rosemary into the risotto, and in a
 small bowl beat the egg yolk, lemon juice, Parmesan, cream and
 pepper.
+
 When the risotto is ready - when the rice is no longer chalky, but
 still has some bite - take it off the heat and add the bowl of eggy,
 lemony mixture, and the remaining butter and salt, to taste.

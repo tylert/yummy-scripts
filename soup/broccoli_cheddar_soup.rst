@@ -21,6 +21,9 @@ Make a roux using remainder of melted butter and flour. Cook about 5 minutes ove
 Add in half and half stirring constantly. 
 Add in chicken stock and simmer for 20 minutes. 
 Add vegetables and cook for 25 minutes over low heat. 
-If you want a smooth soup, at this point puree in a blender and return to heat or use immersion blender. 
+
+If you want a smooth soup, at this point puree in a blender and return to heat
+or use immersion blender. 
+
 Add cheese and nutmeg. 
 Add salt and pepper to taste.

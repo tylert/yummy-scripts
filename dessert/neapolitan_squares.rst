@@ -8,7 +8,7 @@ Neapolitan Squares
 2 cups medium-grind coconut (substitute dessicated or flaked)
 1 can sweetened condensed milk
 a touch of milk
----------------------------------------------------------------------------
+
 
 Combine first 4 ingredients and press into a 9" x 9" tinfoil-lined pan.
 Bake at 350F for 10 mins.
@@ -23,7 +23,7 @@ Allow to cool before adding frosting.
     red food colouring
 1 tsp. almond extract
 2 tsp. water
----------------------------------------------------------------------------
+
 
 Beat together all ingredients adding water until thick.
 Add 1 tsp. almond extract.  Add red food colouring until pink.

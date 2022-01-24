@@ -18,8 +18,15 @@ One-Pot Fajita Pasta
 Heat oil in a large pot over high heat.
 Add chicken and cook until no pink is visible, then take the chicken out.
 Add the bell peppers and onion, cooking until the onion is translucent.
-Add the chicken back to the pot with salt, pepper, chili powder, cumin, and garlic powder, stirring until evenly coated.
-Add the milk and the penne, stirring constantly to prevent any pasta from sticking.
-Cook for about 8-10 minutes until pasta is cooked and the milk has reduced to a thick sauce that coats the pasta.
+
+Add the chicken back to the pot with salt, pepper, chili powder, cumin, and
+garlic powder, stirring until evenly coated.
+
+Add the milk and the penne, stirring constantly to prevent any pasta from
+sticking.
+
+Cook for about 8-10 minutes until pasta is cooked and the milk has reduced to a
+thick sauce that coats the pasta.
+
 Add the cheese and mix until melted.
 Serves 3–5

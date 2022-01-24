@@ -20,7 +20,10 @@ Ingredients
 Instructions
 
 - Heat the Vegetable oil  in a large pot over medium-high heat. 
-- Add the onions, green bell pepper and garlic and saute until the onion mixture begins to softened, about 5-6 minutes.
+
+- Add the onions, green bell pepper and garlic and saute until the onion
+  mixture begins to softened, about 5-6 minutes.
+
 - Add the ground round, stir until warmed thoroughly.
 - Add the chili powder, oregano, salt and pepper and cook over medium heat for 1-2 minutes.
 - Add condensed cream of tomato soup, diced tomatoes with their juice and beef broth

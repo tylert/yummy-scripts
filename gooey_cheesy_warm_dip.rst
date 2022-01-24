@@ -8,5 +8,8 @@ Gooey and Cheesy Warm Dip
 
 Preheat oven to 400 F.
 Combine softened cream cheese, sour cream, cheddar cheese, bacon and green onion
-Spoon mixture into a 1-quart baking dish and bake for 25-30 minutes, or until cheese is bubbling and hot.
+
+Spoon mixture into a 1-quart baking dish and bake for 25-30 minutes, or until
+cheese is bubbling and hot.
+
 Serve with bread slices, crackers, or veggies.

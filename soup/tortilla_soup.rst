@@ -23,4 +23,5 @@ Tortilla chips
 Combine all ingredients except the garnishes in a large pot. Bring to a boil.
 Once it's boiling lower heat and simmer for 45 mins.
 
-Serve in a bowl and top with cheese, cilantro, avocado and broken up tortilla chips. Bon Appétit!
+Serve in a bowl and top with cheese, cilantro, avocado and broken up tortilla
+chips. Bon Appétit!

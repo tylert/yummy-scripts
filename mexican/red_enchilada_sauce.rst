@@ -18,5 +18,10 @@ Ingredients:
 
 Directions:
 
-    Heat oil in a small saucepan over medium-high heat. Add flour and whisk together over the heat for one minute. Stir in the remaining seasonings (chili powder through oregano). Then gradually add in the stock, whisking constantly to remove lumps. Reduce heat and simmer 10-15 minutes until slightly thickened.
-    Use immediately or refrigerate in an air-tight container for up to 3 days.  (I like to use mason jars or Weck jars to store this sauce.)
+Heat oil in a small saucepan over medium-high heat. Add flour and whisk
+together over the heat for one minute. Stir in the remaining seasonings (chili
+powder through oregano). Then gradually add in the stock, whisking constantly
+to remove lumps. Reduce heat and simmer 10-15 minutes until slightly thickened.
+
+Use immediately or refrigerate in an air-tight container for up to 3 days.  (I
+like to use mason jars or Weck jars to store this sauce.)

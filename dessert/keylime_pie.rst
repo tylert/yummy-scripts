@@ -28,12 +28,18 @@ For Filling
 Preheat oven to 350 degrees.
 Combine all ingredients in your mixing bowl and allow them to beat on med-high for 2 minutes.
 Scrape filling into your prepared (and cooled) pie crust)
-Bake for 15-20 minutes or until filling only wiggles a bit in the center when you gently shake the pan back & forth a bit.
+
+Bake for 15-20 minutes or until filling only wiggles a bit in the center when
+you gently shake the pan back & forth a bit.
+
 Don't allow pie to brown.
 Cool on your counter for at least 30 minutes, then place in the fridge for at least 3 hours.
 Whipped Cream
 In your mixing bowl, whip the cream on high until stiff peaks begin to form.
 Add in vanilla and powdered sugar and whip until firm whipped cream happens.
-Scrape into a pastry bag fitted with a decorative tip and when ready (an hour before serving or so, decorate your pie.
+
+Scrape into a pastry bag fitted with a decorative tip and when ready (an hour
+before serving or so, decorate your pie.
+
 Sprinkle a little fresh lime zest over-top.
 Keep pie chilled until serving.
