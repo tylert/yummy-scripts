@@ -12,6 +12,7 @@ Water to mix
 1/2 tsp Baking Soda
 Oil for frying
 
+
 Mix flour with salt, baking soda & spices, and add the grated & chopped
 vegetables, add sufficient water to form a very thick batter. Let it stand for
 2 hours. Taste for enough salt.

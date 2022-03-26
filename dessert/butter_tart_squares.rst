@@ -16,7 +16,6 @@ Topping:
 1 cup (250 mL) raisins
 1/2 cup (125 mL) coarsely chopped pecans
 
-Preparation
 
 In bowl, combine flour with sugar; with pastry blender, cut in butter until
 crumbly. Press into 9-inch (2.5 L) square cake pan; bake in 350°F (180°C) oven

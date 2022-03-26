@@ -21,14 +21,3 @@ Options:
 Add 1 teaspoon of grated ginger.
 Add a handful of slivered almonds.
 Add diced potatoes and a dash of turmeric.
-
-Number of Servings: 6
-
-    * Calories: 101.7 
-
-    * Total Fat: 7.3 g
-    * Cholesterol: 0.0 mg
-    * Sodium: 1,566.9 mg
-    * Total Carbs: 8.1 g
-    * Dietary Fiber: 2.9 g
-    * Protein: 1.7 g 

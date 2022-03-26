@@ -1,7 +1,5 @@
 Enchilada Rice Casserole
 
-Ingredients
-
 2 cups dry Basmati rice
 1 cup white cheddar shredded
 1 cup Monterey Jack cheese shredded
@@ -11,7 +9,6 @@ Ingredients
 cilantro for garnish
 salt and ground black pepper to taste
 
-Instructions
 
 Cook the rice. I cooked it with 4 cups of water and 1/4 cup of butter.
 Preheat oven to 350 F degrees.

@@ -14,12 +14,13 @@ Cranberry Harvest Muffins
 1/2 cup sunflower seeds
 1 cup brown sugar, packed
 
+
 Preheat the oven to 375 degrees F.
 
 Line 18 muffin cups with paper liners.  Sift together the flour, baking powder,
 baking soda, salt, cinnamon, and ginger in a large bowl.  Make a well in the
 center of the mixture and add the milk, eggs, and melted butter.  Stir quickly
-just to combine.  Add the cranberries, figs, hazelnuts, and both sugars and
+just to combine.  Add the fruit, nuts, seeds and sugar and
 stir just to distribute the fruits, nuts, and sugar evenly throughout the
 batter.
 

@@ -1,4 +1,4 @@
-SUNNY APPLE CRISP
+Sunny Apple Crisp
 
 Topping:
 4 tablespoons cold unsalted butter, cut into pieces
@@ -6,7 +6,7 @@ Topping:
 1/2 cup all-purpose flour
 1/2 cup rolled oats
 1 teaspoon ground cinnamon
-1/2 cup chopped walnuts
+1/2 cup chopped walnuts (optional)
 
 4 apples, peeled, cored and cut into 1/2-inch dice
 2 tablespoons fresh lemon juice

@@ -1,4 +1,4 @@
-Hermit cookies
+Hermit Cookies
 
 2/3 cup of room-temperature butter
 1-1/2 cups of brown sugar

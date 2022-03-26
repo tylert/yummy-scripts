@@ -1,14 +1,14 @@
 Fruit Jumbles
 
-3⁄4 cup butter
+3/4 cup butter
 1 cup sugar
 1 egg
-1⁄4 cup milk
+1/4 cup milk
 1 tsp vanilla
-1 3⁄4 cup flour
+1 3/4 cup flour
 1 tsp baking powder
-3⁄4 tsp salt
-1 cup mixed fruit, 1⁄2 cup minced meat or 1/2 cup chopped candied cherries
+3/4 tsp salt
+1 cup mixed fruit, 1/2 cup minced meat or 1/2 cup chopped candied cherries
 
 Heat oven to 375F.
 Soften butter, add sugar and mix until smooth.

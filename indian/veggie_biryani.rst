@@ -14,7 +14,6 @@ Veggie Biryani
 1/2 tsp. ground turmeric
 1/2 tsp. cayenne pepper
 
-Make It
 
 PLACE rice in medium bowl. Add enough cold water to cover rice. Let stand 10
 min.

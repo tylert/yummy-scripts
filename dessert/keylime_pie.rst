@@ -1,14 +1,14 @@
 Key Lime Pie
 
 Crust
-1.5 - 2 cups of graham cracker crumbs*
-0.25 cup sugar
+1 1/2 - 2 cups of graham cracker crumbs*
+1/4 cup sugar
 4 tbsp butter. melted
 
 Filling
 3 cups (24 oz) sweetened condensed milk
-0.5 cup sour cream
-0.75 cup key lime juice (if you can't get key limes, from a bottle is fine, found in baking aisle)
+1/2 cup sour cream
+3/4 cup key lime juice (if you can't get key limes, from a bottle is fine, found in baking aisle)
 2 egg yolks
 Zest from 1 lime (or key lime)
  
@@ -24,6 +24,7 @@ Add in sugar butter and pulse until combined.
 Press crumbs onto your pie plate, across the bottom and up the sides.
 Bake for 6-8 minutes or until golden brown.
 Allow crust to cool completely.
+
 For Filling
 Preheat oven to 350 degrees.
 Combine all ingredients in your mixing bowl and allow them to beat on med-high for 2 minutes.

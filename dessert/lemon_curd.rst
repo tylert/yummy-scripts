@@ -19,5 +19,4 @@ Remove from the microwave, push through a fine, mesh sieve and pour into
 sterile jar.
 
 Notes:
-
-- Store lemon curd in the refrigerator for up to 2 weeks.
+Store lemon curd in the refrigerator for up to 2 weeks.

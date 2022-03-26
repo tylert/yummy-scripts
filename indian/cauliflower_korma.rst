@@ -4,7 +4,7 @@ Cauliflower Korma
 1 onion chopped fine
 100g unsalted unroasted cashew nuts
 3 cloves garlic crushed
-2.5 cm ginger peeled and chopped fine
+2 1/2 cm ginger peeled and chopped fine
 3 curry leaves
 3 cardamon pods
 1 tsp fenugreek seeds
@@ -13,6 +13,7 @@ half tbs curry powder
 1 tsp salt
 a good pinch of saffron
 2 tbs oil
+
 
 Soak saffron in a little hot water.Fry cauliflower in oil until golden brown.
 Remove and drain on kitchen towel and set aside. In the same saucepan fry

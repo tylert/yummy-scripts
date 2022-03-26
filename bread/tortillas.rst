@@ -1,11 +1,11 @@
-Ingredients
+Tortillas 
+
 3 cups all-purpose flour
 1 teaspoon salt
 1 teaspoon baking powder
 1/3 cup extra virgin olive oil, vegetable oil or other fairly neutral flavored oil
 1 cup warm water
 
-Instructions
 
 Combine flour, salt and baking powder in the bowl of a stand mixer. Using the
 dough hook, mix dry ingredients until well combined.

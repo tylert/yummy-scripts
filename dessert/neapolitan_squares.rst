@@ -1,6 +1,6 @@
 Neapolitan Squares
 
--Bottom & Middle-----------------------------------------------------------
+Bottom & Middle
 1 1/4 cups graham cracker crumbs
 1/2 cup  melted butter (or margarine)
 1/2 cup  packed brown sugar
@@ -17,7 +17,7 @@ In a clean bowl, mix coconut and milk.  Spread over bottom layer.
 Bake at 350F for 20 mins. (or until slightly brown on edges).
 Allow to cool before adding frosting.
 
--Top-----------------------------------------------------------------------
+Top
 2 cups icing sugar
 1/4 cup  butter (around 4 tbsp.)
     red food colouring

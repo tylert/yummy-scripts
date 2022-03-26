@@ -1,6 +1,5 @@
 Curried Chickpea and Potatoes
 
-Ingredients:
 1 lb white potatoes (3 medium) peeled and thinly sliced
 1 can chickpeas 19 fl ozs drained and rinsed
 Salt to taste
@@ -17,7 +16,7 @@ Curry paste:
 1/4 tsp. hot pepper sauce (optional)
 4 tbsp water
 
-Method:
+
 Peel and cut potatoes
 
 Drain and rinse chickpea

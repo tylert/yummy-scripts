@@ -1,4 +1,4 @@
-WHITE CHOCOLATE CRANBERRY SHORTBREAD
+White Chocolate Cranberry Shortbread
 
 1 cup unsalted butter, room temperature
 1/2 cup powder sugar plus 2 tbsp powder sugar

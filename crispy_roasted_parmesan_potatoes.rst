@@ -1,6 +1,6 @@
 Crispy Roasted Parmesan Potatoes
 
-1.5 lb baby potatoes , halved (about 3.5cm / 1.75", 20 - 24 potatoes)
+1 1/2 lb baby potatoes , halved (about 3.5cm / 1.75", 20 - 24 potatoes)
 2 tbsp olive oil , plus more for drizzling
 
 Parmesan Mixture:

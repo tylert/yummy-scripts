@@ -21,4 +21,3 @@ panko.
 Working in batches, place the breaded mushroom slices in the hot oil and fry
 for 3 to 4 minutes, until golden brown. Drain on a paper towel lined sheet
 tray.
-Yield: 4 servings

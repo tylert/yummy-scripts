@@ -1,4 +1,4 @@
-Reeces peanut butter no-bake bars
+Reeces Peanut Butter No-Bake Bars
 
 1 cup salted butter (melted)
 2 cups keebler graham cracker crumbs

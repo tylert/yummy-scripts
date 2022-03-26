@@ -1,9 +1,9 @@
 Gooey and Cheesy Warm Dip
  
- 8 ounces cream cheese, softened
- 2 cups sour cream (I used light)
- 1.5 cups shredded cheddar cheese
- 0.5 cup sliced green onion
+8 ounces cream cheese, softened
+2 cups sour cream (I used light)
+1 1/2 cups shredded cheddar cheese
+1/2 cup sliced green onion
 
 
 Preheat oven to 400 F.

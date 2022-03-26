@@ -12,4 +12,3 @@ moderately low heat, stirring, for 1 minute, add the curry powder, and cook the
 mixture, stirring, for 1 minute. Add the broth, bring it to a boil, and stir in
 the couscous. Remove the pan from the heat, let the couscous stand, covered,
 for 5 minutes, and stir in the scallion green and salt and pepper to taste.
-Serves 2.

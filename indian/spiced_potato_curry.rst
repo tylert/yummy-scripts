@@ -11,6 +11,7 @@ A few curry leaves
 2 tablespoons cooking oil
 2 tablespoons desiccated coconut
 
+
 Dry roast cumin, dill seed and chillie pieces for one minute in a pan, then
 into the same pan, add the oil, onions, mustard seeds and curry leaves.  When
 the onions are nicely browned, add the potatoes, turmeric, salt and coconut.

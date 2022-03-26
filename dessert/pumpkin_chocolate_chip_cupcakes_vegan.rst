@@ -21,6 +21,7 @@ For the glaze:
 1 Tbsp soymilk
 1/2 tsp vanilla
 
+
 Preheat the oven to 350 degrees.
 
 Line a 12-cup muffin tin or a 24-cup mini muffin tin with paper liners and mist
@@ -41,11 +42,3 @@ temperature until ready to use.
 Once the cupcakes have cooled completely, use a spoon, ziploc bag with the
 corner snipped, pastry bag, or fancy frosting piper like mine to drizzle on the
 glaze.
-
-Yield: 12 regular or 24 mini cupcakes.
-
-Per cupcake (regular): 210 calories, 6.8g fat (.5g sat), 37g carbs, 1.8g fiber,
-2.4g protein.
-
-Per cupcake (mini): 105 calories, 3.4g fat (trace sat), 18.5g carbs, .9g fiber,
-1.2g protein.

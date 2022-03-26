@@ -1,7 +1,5 @@
 Cilantro and Sweet Corn Soup
 
-Ingredients
-
 2 Tbs olive oil (or your favorite cooking oil)
 1 tsp chili powder
 1/8 - 1/4 tsp red pepper flakes
@@ -19,7 +17,6 @@ black pepper to taste
 1/2 c water
 1 c cilantro leaves, loosely packed
 
-Instructions
 
 Heat the oil on low in a large nonstick cooking pot. Add the chili powder, red
 pepper flakes and cumin and let bloom about 5 minutes. While that's happening,

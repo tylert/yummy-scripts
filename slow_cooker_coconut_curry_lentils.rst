@@ -17,18 +17,18 @@ Serving suggestion
 1/2 red onion
 1/2 bunch cilantro or green onions
 
-- Dice the onion and mince the garlic. Peel the sweet potato and carrots. Dice
-  the sweet potato (1/4-1/2 inch cubes) and slice the carrots.
+Dice the onion and mince the garlic. Peel the sweet potato and carrots. Dice
+the sweet potato (1/4-1/2 inch cubes) and slice the carrots.
 
-- Add the onion, garlic, sweet potato, carrots, lentils, curry powder, cloves,
-  diced tomatoes, tomato sauce, and vegetable broth to the slow cooker. Stir to
+Add the onion, garlic, sweet potato, carrots, lentils, curry powder, cloves,
+diced tomatoes, tomato sauce, and vegetable broth to the slow cooker. Stir to
 combine. Place the lid on the slow cooker and cook on high for four hours or
 low for 7-8 hours. Once cooked, the lentils should be tender and most of the
 liquid should be absorbed.
 
-- Stir the can of coconut milk into the lentils. Taste and adjust the salt or
-  other spices as needed (the amount of salt needed will depend on the type of
+Stir the can of coconut milk into the lentils. Taste and adjust the salt or
+other spices as needed (the amount of salt needed will depend on the type of
 broth used and the salt content of the canned tomatoes).
 
-- To serve, add 1 cup cooked rice to a bowl followed by 1 cup of the lentil
-  mixture. Top with finely diced red onion and fresh cilantro.
+To serve, add 1 cup cooked rice to a bowl followed by 1 cup of the lentil
+mixture. Top with finely diced red onion and fresh cilantro.

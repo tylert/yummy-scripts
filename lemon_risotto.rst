@@ -14,6 +14,7 @@ Needles from 2 small sprigs fresh rosemary, finely chopped
 Good grating black pepper, preferably white
 Maldon or other sea salt, to taste
 
+
 Put the shallots and celery into a mini food processor and blitz
 until they are finely chopped. Heat half the butter, the oil and the
 shallot and celery mixture in a wide saucepan, and cook to soften

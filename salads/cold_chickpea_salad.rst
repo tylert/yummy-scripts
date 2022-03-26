@@ -6,9 +6,6 @@ Cold Chickpea Salad
 1 small red pepper, small diced
 3 rib celery, small diced
 2 carrots
-2 tbsp Five Herb Vinaigrette
+2 tbsp Five Herb Vinaigrette (or any other favourite savory vinaigrette)
 
-Put all ingredients in a bowl, add dressing and toss until well coated.
-
-Makes 7 servings
-
+Put all ingredients in a bowl, add dressing and toss until well coated. Best if refrigerated overnight.

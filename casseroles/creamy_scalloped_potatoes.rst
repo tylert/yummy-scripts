@@ -4,7 +4,7 @@ Creamy Scalloped Potatoes
 3 tbsp butter
 3 tbsp flour
 1 1/2 cups of milk
-3 medium potatoes
+3-4 medium potatoes
 Salt & pepper to taste
 
 In microwave safe glass casserole dish add onion, butter, salt and pepper.

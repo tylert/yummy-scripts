@@ -1,12 +1,5 @@
 Red Enchilada Sauce
 
-
-Total Time: 20 mins
-Prep Time: 5 mins
-Cook Time: 15 mins
-
-Ingredients:
-
 2 tablespoons avocado oil (or vegetable oil, or any other neutral oil)
 2 tablespoons all-purpose
 4 tablespoons chili powder, (variety depends on spice level you want)
@@ -16,7 +9,6 @@ Ingredients:
 1/4 teaspoon dried oregano
 2 cups chicken or vegetable stock
 
-Directions:
 
 Heat oil in a small saucepan over medium-high heat. Add flour and whisk
 together over the heat for one minute. Stir in the remaining seasonings (chili

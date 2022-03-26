@@ -2,7 +2,7 @@ Ginger Beer
 
 an empty 2L bottle
 2L of water
-1.5 to 2 tbsp. freshly-grated ginger
+1 1/2 to 2 tbsp. freshly-grated ginger
 1 lemon
 1 cup sugar
 1/4 tsp. dried yeast

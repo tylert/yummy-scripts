@@ -22,4 +22,3 @@ spoonfuls of remaining batter over filling sprinkle with reserved crumb
 mixture.
 
 Bake in 350ºF (180ºC) oven 50 to 55 minutes
-Yield: 1 cake

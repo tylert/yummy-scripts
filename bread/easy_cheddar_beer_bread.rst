@@ -1,7 +1,5 @@
 Easy Cheddar Beer Bread
 
-Ingredients
-
 3 cups all-purpose flour
 1 cup shredded sharp cheddar cheese
 3 tablespoons sugar
@@ -10,14 +8,15 @@ Ingredients
 1 12-ounce bottle of beer
 4 tablespoons butter, softened
 
-Directions
 
-Preheat the oven to 350°F.
-Grease a 9×5″ loaf pan with half of of the butter.
+Preheat the oven to 350°F. Grease a 9×5″ loaf pan with half of of the butter.
+
 Whisk flour, baking powder, sugar and salt together.
+
 Add cheese and stir with a spoon.
-Make a well in the center, then pour in the beer.
-Mix with a spoon until it’s just combined.
+
+Make a well in the center, then pour in the beer. Mix with a spoon until it’s just combined.
+
 Spoon into the prepared loaf pan.
 
 Bake for 50-55 minutes or until top is lightly browned and a toothpick inserted

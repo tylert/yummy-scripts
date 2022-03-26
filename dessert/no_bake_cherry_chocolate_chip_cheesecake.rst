@@ -1,4 +1,4 @@
-no bake cherry chocolate chip cheesecake
+No Bake Cherry Chocolate Chip Cheesecake
 
 Crust: 
 22 Oreo Cookies 

@@ -10,6 +10,7 @@ Potato Samosa Phyllo Triangles
 12 (17- by 12-inch) phyllo sheets, thawed if frozen
 3/4 stick unsalted butter, melted and cooled
 
+
 Peel potatoes and cut into 1/2-inch cubes. Put in a medium saucepan with 1
 teaspoon salt and enough water to cover by 1 inch. Simmer until tender, about
 15 minutes, then drain in a colander.
@@ -32,7 +33,3 @@ Repeat with remaining phyllo and filling. Generously brush both sides of each
 samosa with butter and bake, turning samosas over halfway through and switching
 position of sheets, until golden and crisp all over, about 25 minutes total.
 Cool slightly. Serve warm or at room temperature.
-
-yield: Makes 2 dozen
-active time: 45 min
-total time: 1 1/4 hr

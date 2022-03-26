@@ -1,7 +1,5 @@
 ﻿Mexican Fiesta Dip Mix
 
-This is an unusual Southwestern dip mix that can be given in a small sombrero.
-
 1/2 cup dried parsley
 1/3 cup minced onion
 1/4 cup dried chives
