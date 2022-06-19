@@ -11,6 +11,6 @@ Lentil Soup
 8 cups water
 
 
-Peel potatoes and cut into 1/4 inch cubes.  Cook potatoes, carrots, celery, garlic and onion in butter over moderate heat, stirring frequently, until onion is softened, about 4 minutes.  
-Add lentils and broth and simmer, uncovered,stirring occasionally for 45 minutes or until vegetables are tender and soup isthickened.  
+Peel potatoes and cut into 1/4 inch cubes.  Cook potatoes, carrots, celery, garlic and onion in butter over moderate heat, stirring frequently, until onion is softened, about 4 minutes.
+Add lentils and broth and simmer, uncovered,stirring occasionally for 45 minutes or until vegetables are tender and soup isthickened.
 Serve and enjoy.  Makes about 12 cups.

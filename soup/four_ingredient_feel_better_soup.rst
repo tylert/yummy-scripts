@@ -9,7 +9,7 @@ Optional: chives
 Optional: a pinch of salt
 
 
-In a medium pot, bring the chicken broth to a boil. 
+In a medium pot, bring the chicken broth to a boil.
 
 Add the couscous (and the pinch of salt if using) and cook until very, very
 soft.

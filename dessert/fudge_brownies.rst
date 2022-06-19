@@ -1,6 +1,6 @@
 ﻿Double-Fudge Brownie Mix
 
-Dense and fudgie; these are the best brownies in the world. 
+Dense and fudgie; these are the best brownies in the world.
 
 2 cup sugar
 1 cup unsweetened baking cocoa

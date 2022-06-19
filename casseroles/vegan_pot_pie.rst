@@ -15,11 +15,11 @@
 Preheat the oven to 400 degrees F.
 
 Heat the olive oil over medium-high heat in a large skillet. Add the onions and
-garlic and saute until onion is translucent, 1-2 minutes. 
+garlic and saute until onion is translucent, 1-2 minutes.
 
 Whisk in the flour, vegetable broth and unsweetened almond milk. Then add the
 mixed vegetables, potato and vegan chicken or tofu, if using. Simmer for 5-10
-minutes, until the sauce thickens. 
+minutes, until the sauce thickens.
 
 Pour the filling into the pie crust lined pan. Roll out the other pie crust on
 a lightly floured surface, and carefully cover the pie with it. Trim any

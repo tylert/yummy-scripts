@@ -22,7 +22,7 @@ Spoon into the prepared loaf pan.
 Bake for 50-55 minutes or until top is lightly browned and a toothpick inserted
 in the center comes out clean.
 
-Rub the top with remaining butter. 
+Rub the top with remaining butter.
 
 Allow to cool 10 minutes, then turn out onto a wire rack and allow to cool for
 15-20 more minutes before slicing.

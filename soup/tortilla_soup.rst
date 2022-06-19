@@ -1,4 +1,4 @@
-Tortilla Soup 
+Tortilla Soup
 
 1/2 med onion chopped
 1 (4oz) can chopped green chiles (Old El Paso)

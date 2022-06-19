@@ -11,4 +11,4 @@ Mix all the ingredients together, store in an airtight container in a cool,
 dark place, and use as needed.
 
 If you are using fresh, homemade garam masala and curry powder in your blend,
-your mixed powder should last for up to 2 months without losing much flavour. 
+your mixed powder should last for up to 2 months without losing much flavour.

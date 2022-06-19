@@ -13,9 +13,9 @@ Beef and Tomato Macaroni Soup
 4 cups veggie broth
 2 cups uncooked pasta
 Water - ???
- 
 
-Heat the Vegetable oil  in a large pot over medium-high heat. 
+
+Heat the Vegetable oil  in a large pot over medium-high heat.
 
 Add the onions, green bell pepper and garlic and saute until the onion  mixture begins to softened, about 5-6 minutes.
 

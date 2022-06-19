@@ -14,8 +14,8 @@ Preheat oven to 425 degrees F (220 degrees C). Grease muffin cups or line
 with paper muffin liners.
 
 In a small bowl, combine milk and oats; let soak for 15 minutes.
-In a separate bowl, beat together egg and oil; stir in oatmeal mixture. 
-In a third bowl, sift together flour, sugar, baking powder and salt. 
+In a separate bowl, beat together egg and oil; stir in oatmeal mixture.
+In a third bowl, sift together flour, sugar, baking powder and salt.
 
 Stir flour mixture into wet ingredients, just until combined. Spoon batter into
 prepared muffin cups until cups are 2/3 full.

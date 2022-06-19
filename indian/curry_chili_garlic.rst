@@ -11,10 +11,10 @@ Total Time: 20 minutes
 2 (or more) fresh green chillies, sliced into thin rings, plus
 extra to serve (optional)
 1 tsp chilli powder
-1 tbsp mixed powder or curry powder	
+1 tbsp mixed powder or curry powder
 1 tbsp tandoori masala
 70ml (1/4 cup) tomato purée
-300ml (1 1/4 cups) base curry sauce, heated	
+300ml (1 1/4 cups) base curry sauce, heated
 1 handful of dried garlic flakes (optional)
 1 tsp dried fenugreek (methi) leaves
 2 tbsp chopped coriander (cilantro)

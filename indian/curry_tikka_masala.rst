@@ -10,10 +10,10 @@ Total Time: 25 minutes
 1 tbsp ground almonds
 1 tbsp coconut flour
 70ml (1/4 cup) tomato puree
-1 tbsp mixed powder	
+1 tbsp mixed powder
 1 tbsp tandoori masala
 1/2 - 1 tbsp paprika
-300ml (1 1/2 cups) base curry sauce	
+300ml (1 1/2 cups) base curry sauce
 100ml (scant 1/3 cup) single cream (more or less to taste
 1 tsp red food colouring powder (optional)
 Juice of one lemon (optional)

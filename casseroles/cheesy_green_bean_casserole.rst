@@ -11,7 +11,7 @@ pinch red pepper flakes
 
 
 Preheat oven to 400°. Place green beans into a shallow baking dish or skillet.
-Pour cream over beans and scatter garlic. 
+Pour cream over beans and scatter garlic.
 
 Season with salt and red pepper flakes.
 

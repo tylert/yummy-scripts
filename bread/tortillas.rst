@@ -1,4 +1,4 @@
-Tortillas 
+Tortillas
 
 3 cups all-purpose flour
 1 teaspoon salt
@@ -31,10 +31,10 @@ uncooked surface is bubbly. If browning too fast, reduce the heat a bit. If
 it's taking longer than a minute to see a few pale golden brown spots on the
 underside of tortillas, increase the heat a bit. Flip to other side and cook
 for 15-20 seconds. The tortillas should be nice and soft but have a few small
-brown spots on the surface. 
+brown spots on the surface.
 
 Remove from pan with tongs and stack in a covered container or zippered bag to
-keep the tortillas soft. 
+keep the tortillas soft.
 
 Serve warm or allow to cool for later use. When ready to use, place a slightly
 damp paper towel in the bottom of a microwave-safe container (with a cover)

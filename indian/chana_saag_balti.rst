@@ -9,11 +9,11 @@ Total Time: 20 minutes
 1/2 tsp cumin seeds
 1/2 onion - finely chopped
 2 green chillies - finely chopped
-1 tbsp mixed powder	
+1 tbsp mixed powder
 1/2 tsp Kashmiri chilli powder
 1/2 tsp turmeric
 3 tbsp tomato puree
-300ml (1 1/4 cups) base curry sauce	
+300ml (1 1/4 cups) base curry sauce
 1 large handful of chopped spinach
 225g (1/2 lb) tinned chickpeas
 1 tomato - quartered
@@ -36,4 +36,4 @@ simmer.
 Add the spinach and chickpeas and stir this into the sauce. Simmer for a
 further three minutes and then add the quartered tomato.
 
-To finish, stir in the vinegar and methi. Season with salt to taste. 
+To finish, stir in the vinegar and methi. Season with salt to taste.

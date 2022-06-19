@@ -11,7 +11,7 @@ Peanut Butter Cookies
 
 
 Preheat oven to 375 degrees. Grease a baking sheet.
-In a large bowl, cream together sugar and butter. Beat in egg to mixture. 
+In a large bowl, cream together sugar and butter. Beat in egg to mixture.
 Mix in peanut butter and vanilla until smooth and creamy.
 Stir in salt, baking soda and flour until well combined.
 Roll dough into 1 inch balls. Place on baking sheet and flatten with fork. Bake for 12-15 minutes.

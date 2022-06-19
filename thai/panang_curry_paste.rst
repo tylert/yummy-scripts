@@ -18,6 +18,6 @@ Makes 3/4 cup
 
 Ingredient info: Look for chiles de árbol, guajillo chiles, and lemongrass at better supermarkets. Galangal and makrut lime leaves are sold at Southeast Asian markets.
 
-Place dried chiles in a medium bowl; cover with hot water and soak for 15 minutes. 
-Drain; place chiles and all remaining ingredients in a mini-processor; process until paste forms. 
+Place dried chiles in a medium bowl; cover with hot water and soak for 15 minutes.
+Drain; place chiles and all remaining ingredients in a mini-processor; process until paste forms.
 DO AHEAD: Can be made 2 months ahead. Store airtight in freezer.

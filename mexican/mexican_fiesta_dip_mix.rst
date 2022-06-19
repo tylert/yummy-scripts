@@ -22,4 +22,4 @@ Makes 2 cups
 In a medium mixing bowl combine the Dip Mix with the mayonnaise and sour cream.
 Whisk the mixture until smooth. Refrigerate for 2 to 4 hours.
 
-Serve with tortilla chips or fresh vegetables 
+Serve with tortilla chips or fresh vegetables

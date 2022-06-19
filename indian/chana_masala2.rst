@@ -19,7 +19,7 @@ Channa Masala
 1/2 lemon (juiced)
 1 fresh, hot green chili pepper (minced)
 2 teaspoons grated fresh ginger
-garnish with handful of chopped cilantro 
+garnish with handful of chopped cilantro
 
 
 Heat oil in a large skillet.

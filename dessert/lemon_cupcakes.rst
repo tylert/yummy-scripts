@@ -26,13 +26,13 @@ Make the cupcakes. Sift the cake flour, baking powder, and salt into a medium bo
 
 In a large bowl and using an electric mixer on medium speed, beat the butter
 and sugar until smoothly blended and lightened in color, about 2 minutes. Stop
-the mixer and scrape the sides of the bowl as needed during mixing. 
+the mixer and scrape the sides of the bowl as needed during mixing.
 
 Add the eggs one at a time, mixing until each is blended into the batter and it
-looks creamy, about 1 minute. 
+looks creamy, about 1 minute.
 
 Add the lemon juice, lemon zest, and vanilla and beat for 2 minutes. If the
-eggs are cold, the mixture may look slightly curdled. 
+eggs are cold, the mixture may look slightly curdled.
 
 On low speed and in 3 additions (3 flour, 2 milk), add the flour mixture and
 milk alternately, beginning and ending with the flour mixture. Mix just until
@@ -50,7 +50,7 @@ from the pan onto a wire rack and let cool completely.
 Make the frosting. In a large bowl, using an electric mixer on low speed, beat
 the butter, cream cheese, grated lemon peel, and vanilla until smooth and
 thoroughly blended, about 1 minute. Stop the mixer and scrape the sides of the
-bowl as needed during mixing. 
+bowl as needed during mixing.
 
 Add the powdered sugar, mixing until smooth, about 1 minute, then beat on
 medium speed for 1 minute to lighten the frosting further. Use a small spatula

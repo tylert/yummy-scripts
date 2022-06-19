@@ -21,7 +21,7 @@ keep on adding the eggs, and a bit of flour if necessary, until all the eggs
 are added.
 
 Add half the milk with half of the flour and the baking soda, keeping the mixer
-on a slow speed. 
+on a slow speed.
 
 Once combined, add the rest of the milk and flour. Right at the end, fold in
 the mashed strawberries or whatever other fruit you wish to use.

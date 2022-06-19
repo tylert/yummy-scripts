@@ -42,4 +42,4 @@ necessary.
 
 Add the dried methi and lemon juice. The stir in the food colouring if using.
 
-Garnish with the chopped coriander (cilantro) and season with salt to taste. 
+Garnish with the chopped coriander (cilantro) and season with salt to taste.

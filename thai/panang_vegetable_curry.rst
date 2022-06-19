@@ -15,7 +15,7 @@ Panang Vegetable Curry
 1 cup loosely packed basil leaves, roughly chopped
 
 
-Heat oil over medium-high heat in large non-stick skillet. Saute onions for 2 minutes, then add bell peppers, garlic and ginger and saute for 2 minutes more. 
+Heat oil over medium-high heat in large non-stick skillet. Saute onions for 2 minutes, then add bell peppers, garlic and ginger and saute for 2 minutes more.
 Add curry paste and peanut butter and saute for 1 minute. Add 1 ½ cans of coconut milk. Whisk cornstarch into remaining 1/2 can coconut milk then add to the pan. Stir well.
 Simmer for 10-15 minutes or until the sauce begins to thicken.
 Stir in sugar, lime juice, and basil. Simmer for 5 minutes. Season with salt and pepper, to taste.

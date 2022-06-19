@@ -26,4 +26,4 @@ onions have started to brown.
 
 Once the lentils are cooked, add the tempering ingredients, coconut milk some
 salt to taste.  And stir well.  Allow to cook for 5-8 more minutes. Serve hot
-with rice or naan breads. 
+with rice or naan breads.
