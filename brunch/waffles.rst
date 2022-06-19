@@ -1,20 +1,17 @@
-Waffles
+4 cups flour
+4 tsp baking powder
+4 tbsp sugar
+1 tbsp cinnamon
+1 tsp vanilla extract
+4 tbsp melted butter (or oil if your choice)
+2 cups vanilla almond milk (or milk of your choice)
 
-2 cups all-purpose flour
-2 teaspoons baking powder
-1/2 tbsp cinnamon
-2 tablespoons sugar
-1/2 teaspoon vanilla extract
-4 tablespoons unsalted butter, melted (or any vegan oil substitute - I use olive oil)
-2 cups milk (or any vegan dairy subtitute)
+In a large bowl combine all dry ingredients.
 
+In a medium bowl combine all wet ingredients and whisk to disperse the butter (oil), then pour over the wet ingredients and mix until all dry ingredients are combined.
 
-Preheat the waffle iron according to the manufacturer's instructions.
+Follow waffle maker instructions for cooking time.
 
-In one medium bowl sift together flour, baking powder, and salt.  Set aside.
+This is a double batch, so spliting it in half will work pefectly.  The double batch makes 10-11 rectangle 6x4 waffles.
 
-In a second bowl the vanilla extract, melted butter and milk, whisk to combine.  Combine the milk mixture with the flour mixture and whisk just until blended.  Do not over mix.  
-
-Pour enough batter in iron to just cover waffle grid.  Close and cook as per manufacturer's instructions until golden brown, about 2 to 3 minutes.  Serve immediately.
-
-Note: I usually double the recipe and freeze the waffles.  Defrost in fridge overnight and reheat in toaster, watching not to over toast them.
+They freeze really well, so you will have future breakfasts in a few minutes.  Let them cool completely then put into a freezer safe container or plastic bag.  Simply remove from the freezer and reheat them in the toaster or defrost overnight and toast the next morning.
