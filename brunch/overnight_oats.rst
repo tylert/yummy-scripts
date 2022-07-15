@@ -1,15 +1,16 @@
 Overnight Oats
 
-1/2 cup oats (50-50 large flake, spelt)
-1 tsp hemp seeds
-1 tsp pea protein
-1/2 tsp cinnamon
-some almonds
-vanilla almond milk (quantity at the discretion of the individual)
+* 1/2 cup oats (50-50 large flake, spelt)
+* 1 tsp hemp seeds
+* 1 tsp pea protein
+* 1/2 tsp cinnamon
+* some almonds
+* vanilla almond milk (quantity at the discretion of the individual)
 
 Other additional ingredients may be added such as:
-- raisons
-- fresh or frozen fruit pieces
+
+* raisins
+* fresh or frozen fruit pieces
 
 Add all the dry ingredients to a small mason jar.
 The night before, add at least enough vanilla almond milk to wet all the dry ingredients.

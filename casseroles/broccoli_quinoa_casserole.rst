@@ -1,16 +1,16 @@
 Cheesy Broccoli Quinoa Casserole
 
-1 1/2 cups quinoa, uncooked
-2 crowns of broccoli, cut into small florets
-3 Tbsp butter
-3 Tbsp all-purpose flour
-1 small yellow onion, diced
-2 cups milk (I use 2%)
-1 clove garlic, minced
-1 Tbsp spicy brown mustard (I use Creole)
-1/4 tsp cayenne pepper
-Salt and pepper, to taste
-8 oz. sharp cheddar cheese, shredded
+* 1 1/2 cups quinoa, uncooked
+* 2 crowns of broccoli, cut into small florets
+* 3 Tbsp butter
+* 3 Tbsp all-purpose flour
+* 1 small yellow onion, diced
+* 2 cups milk (I use 2%)
+* 1 clove garlic, minced
+* 1 Tbsp spicy brown mustard (I use Creole)
+* 1/4 tsp cayenne pepper
+* Salt and pepper, to taste
+* 8 oz. sharp cheddar cheese, shredded
 
 Preheat oven to 400.
 

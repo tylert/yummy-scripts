@@ -1,11 +1,11 @@
 Creamy Scalloped Potatoes
 
-1 small cooking onion
-3 tbsp butter
-3 tbsp flour
-1 1/2 cups of milk
-3-4 medium potatoes
-Salt & pepper to taste
+* 1 small cooking onion
+* 3 tbsp butter
+* 3 tbsp flour
+* 1 1/2 cups of milk
+* 3-4 medium potatoes
+* Salt & pepper to taste
 
 In microwave safe glass casserole dish add onion, butter, salt and pepper.
 Heat in microwave for 2 minutes then stir onions and butter until evenly

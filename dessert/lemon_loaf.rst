@@ -1,22 +1,23 @@
 Lemon Loaf
 
-1 1/2 cups flour
-1/2 teaspoon baking powder
-1/2 teaspoon baking soda
-1/2 teaspoon salt
-3 eggs, room temp
-1 cup sugar
-2 tablespoons butter, softened
-1 teaspoon vanilla extract
-2 teaspoon lemon extract
-1/3 cup lemon juice
-1/2 cup oil
-zest of one lemon
+* 1 1/2 cups flour
+* 1/2 teaspoon baking powder
+* 1/2 teaspoon baking soda
+* 1/2 teaspoon salt
+* 3 eggs, room temp
+* 1 cup sugar
+* 2 tablespoons butter, softened
+* 1 teaspoon vanilla extract
+* 2 teaspoon lemon extract
+* 1/3 cup lemon juice
+* 1/2 cup oil
+* zest of one lemon
 
 Glaze:
-1 cup powdered sugar
-2 tablespoons whole milk
-1/2 teaspoon lemon extract
+
+* 1 cup powdered sugar
+* 2 tablespoons whole milk
+* 1/2 teaspoon lemon extract
 
 Preheat oven to 350. Grease and flour a 9 × 5 loaf pan. In a large bowl,
 combine flour, baking soda, baking powder and salt.  In a medium bowl, combine

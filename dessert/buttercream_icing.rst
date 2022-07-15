@@ -1,10 +1,10 @@
 Buttercream Icing
 
-1/2 cup shortening
-1/2 cup of butter
-1 tsp of vanilla
-4 cups of confectioners' sugar
-2 tbls of milk
+* 1/2 cup shortening
+* 1/2 cup of butter
+* 1 tsp of vanilla
+* 4 cups of confectioners' sugar
+* 2 tbls of milk
 
 In a large bowl, cream together the butter, shortening and vanilla. Blend in
 the sugar, one cup at a time, beating well after each addition. Beat in milk

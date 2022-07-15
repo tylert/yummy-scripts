@@ -1,12 +1,12 @@
 Ginger Beer
 
-an empty 2L bottle
-2L of water
-1 1/2 to 2 tbsp. freshly-grated ginger
-1 lemon
-1 cup sugar
-1/4 tsp. dried yeast
-a funnel
+* an empty 2L bottle
+* 2L of water
+* 1 1/2 to 2 tbsp. freshly-grated ginger
+* 1 lemon
+* 1 cup sugar
+* 1/4 tsp. dried yeast
+* a funnel
 
 Put sugar into bottle.  Add dried yeast.  Mix ginger and lemon juice in a cup.
 Add mix to bottle.  Fill bottle 3/4 with water.  Shake bottle until sugar is

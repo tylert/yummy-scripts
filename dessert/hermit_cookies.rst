@@ -1,15 +1,15 @@
 Hermit Cookies
 
-2/3 cup of room-temperature butter
-1-1/2 cups of brown sugar
-2 eggs
-2 cups of flour
-1 teaspoon of baking soda
-1/4 teaspoon of cloves
-1/4teaspoon of cinnamon
-1/4 teaspoon of salt
-1 cup of raisins
-1 cup of chopped dates
+* 2/3 cup of room-temperature butter
+* 1-1/2 cups of brown sugar
+* 2 eggs
+* 2 cups of flour
+* 1 teaspoon of baking soda
+* 1/4 teaspoon of cloves
+* 1/4teaspoon of cinnamon
+* 1/4 teaspoon of salt
+* 1 cup of raisins
+* 1 cup of chopped dates
 
 Beat butter with sugar until it's light.
 Add eggs, one at a time.

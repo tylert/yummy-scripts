@@ -1,13 +1,13 @@
 Cheesy Green Bean Casserole
 
-2 lb. green beans, cleaned with ends removed
-1/2 c. heavy cream
-2 garlic cloves, thinly sliced
-1 c. mozzarella
-2/3 c. freshly grated Parmesan, plus more for garnish
-kosher salt
-pinch red pepper flakes
-2 tsp. lemon zest
+* 2 lb. green beans, cleaned with ends removed
+* 1/2 c. heavy cream
+* 2 garlic cloves, thinly sliced
+* 1 c. mozzarella
+* 2/3 c. freshly grated Parmesan, plus more for garnish
+* kosher salt
+* pinch red pepper flakes
+* 2 tsp. lemon zest
 
 
 Preheat oven to 400°. Place green beans into a shallow baking dish or skillet.

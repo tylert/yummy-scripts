@@ -1,13 +1,13 @@
 Blueberry Coffeecake
 
-2-1/4 cups (550 mL) all purpose flour
-3/4 cup (175 mL) sugar
-3/4 cup (175 mL) butter
-1/2 tsp (2 mL) baking powder
-1/2 tsp (2 mL) baking soda
-1 egg, beaten (you may also substitute 3 tbsp egg-like mixture)
-3/4 cup (175 mL) buttermilk or soured milk or skim milk
-1 can (19 oz/540 mL) blueberry pie filling
+* 2-1/4 cups (550 mL) all purpose flour
+* 3/4 cup (175 mL) sugar
+* 3/4 cup (175 mL) butter
+* 1/2 tsp (2 mL) baking powder
+* 1/2 tsp (2 mL) baking soda
+* 1 egg, beaten (you may also substitute 3 tbsp egg-like mixture)
+* 3/4 cup (175 mL) buttermilk or soured milk or skim milk
+* 1 can (19 oz/540 mL) blueberry pie filling
 
 
 In a large bowl combine flour and sugar. Cut in butter until mixture is crumbly

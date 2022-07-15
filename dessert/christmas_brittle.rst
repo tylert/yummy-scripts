@@ -1,10 +1,10 @@
 Christmas Brittle
 
-1 sleeve saltine crackers (maybe more)
-1 cup brown sugar
-1 cup butter
-2 cups chocolate chips
-Sprinkles (optional)
+* 1 sleeve saltine crackers (maybe more)
+* 1 cup brown sugar
+* 1 cup butter
+* 2 cups chocolate chips
+* Sprinkles (optional)
 
 
 Preheat oven to 400 degrees and line a cookie sheet (15x10”) with parchment

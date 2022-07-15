@@ -1,18 +1,18 @@
 Cranberry Harvest Muffins
 
-3 cups all-purpose flour (1 cup multigrain, 2 cup all purpose)
-1 tablespoon baking powder
-1/2 teaspoon baking soda
-1/2 teaspoon salt
-1 tablespoon ground cinnamon
-2 teaspoons ground ginger (substitution: pumpkin pie spice)
-1 1/4 cups whole milk
-2 extra-large eggs
-1/2 pound unsalted butter, melted and cooled
-1 1/2 cups coarsely chopped fresh cranberries
-1/2 cup pumpkin seeds
-1/2 cup sunflower seeds
-1 cup brown sugar, packed
+* 3 cups all-purpose flour (1 cup multigrain, 2 cup all purpose)
+* 1 tablespoon baking powder
+* 1/2 teaspoon baking soda
+* 1/2 teaspoon salt
+* 1 tablespoon ground cinnamon
+* 2 teaspoons ground ginger (substitution: pumpkin pie spice)
+* 1 1/4 cups whole milk
+* 2 extra-large eggs
+* 1/2 pound unsalted butter, melted and cooled
+* 1 1/2 cups coarsely chopped fresh cranberries
+* 1/2 cup pumpkin seeds
+* 1/2 cup sunflower seeds
+* 1 cup brown sugar, packed
 
 
 Preheat the oven to 375 degrees F.

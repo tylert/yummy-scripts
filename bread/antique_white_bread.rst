@@ -2,30 +2,30 @@ Antique White Bread
 
 Small Loaf
 
-5/8 to 3/4 cup water
-2 tbsp oil
-3/4 tsp salt
-2 tbsp sugar
-2 cups bread flour
-1-1/2 tsp active dry yeast
+* 5/8 to 3/4 cup water
+* 2 tbsp oil
+* 3/4 tsp salt
+* 2 tbsp sugar
+* 2 cups bread flour
+* 1-1/2 tsp active dry yeast
 
 Medium Loaf
 
-1 to 1-1/8 cup water
-3 tbsp oil
-1 tsp salt
-3 tbsp sugar
-3 cups bread flour
-1-1/2 tsp active dry yeast
+* 1 to 1-1/8 cup water
+* 3 tbsp oil
+* 1 tsp salt
+* 3 tbsp sugar
+* 3 cups bread flour
+* 1-1/2 tsp active dry yeast
 
 Large Loaf
 
-1-3/8 to 1-1/2 cup water
-1/4 cup oil
-1-1/2 tsp salt
-1/4 cup sugar
-4 cups bread flour
-2 tsp active dry yeast
+* 1-3/8 to 1-1/2 cup water
+* 1/4 cup oil
+* 1-1/2 tsp salt
+* 1/4 cup sugar
+* 4 cups bread flour
+* 2 tsp active dry yeast
 
 Place indregients int the bread pan using the least amount of liquid liste in
 the recipe.  Select medium crust setting and press start.

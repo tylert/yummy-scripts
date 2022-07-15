@@ -1,13 +1,13 @@
 Cabbage Roll Casserole
 
-1 small green cabbage
-1/2 white onion, finely chopped
-3 gloves of garlic, crushed or finely chopped
-2 stalks of celery, finely chopped
-1 lb ground beef or ground turkey
-1 tbsp Italian seasoning (oregano will work)
-3/4 cups of rice (parboiled or basmati works best)
-1 1/2 cups of low sodium V8 or tomato juice
+* 1 small green cabbage
+* 1/2 white onion, finely chopped
+* 3 gloves of garlic, crushed or finely chopped
+* 2 stalks of celery, finely chopped
+* 1 lb ground beef or ground turkey
+* 1 tbsp Italian seasoning (oregano will work)
+* 3/4 cups of rice (parboiled or basmati works best)
+* 1 1/2 cups of low sodium V8 or tomato juice
 
 Optional:  dilute 1/2 cup of pasta sauce with 1 cup water to make tomato juice
 

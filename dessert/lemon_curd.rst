@@ -1,10 +1,10 @@
 Microwave Lemon Curd
 
-1 cup white sugar
-3 eggs
-1 cup fresh lemon juice (about 4-5 lemons)
-zest of 3 lemons
-1/2 cup unsalted butter, melted
+* 1 cup white sugar
+* 3 eggs
+* 1 cup fresh lemon juice (about 4-5 lemons)
+* zest of 3 lemons
+* 1/2 cup unsalted butter, melted
 
 
 In a large microwave-safe bowl, whisk together the sugar and eggs until smooth
