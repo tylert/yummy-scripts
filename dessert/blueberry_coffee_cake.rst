@@ -1,4 +1,5 @@
 Blueberry Coffeecake
+--------------------
 
 * 2-1/4 cups (550 mL) all purpose flour
 * 3/4 cup (175 mL) sugar

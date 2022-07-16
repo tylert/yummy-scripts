@@ -1,4 +1,5 @@
 Curry Base Sauce
+----------------
 
 Take some time to make this base curry sauce. Once it's made and you have it on
 hand, you can whip up all your favourite curry house style curries in minutes!
@@ -10,23 +11,23 @@ Cook Time: 1 hour
 Total Time: 1 hour 20 minutes
 
 
-10 large cooking onions – finely sliced
-250ml vegetable oil
-9 tablespoons garlic/ginger paste (equal amounts garlic and ginger blended into a paste with a little water.)
-1 carrot - peeled and chopped
-1/4 head of cabbage - chopped
-1 red bell pepper - diced
-1 green bell pepper - diced
-water
-400ml (14 US fluid ounces ) chopped tomatoes
-4 tablespoons ghee (clarified butter)
-1 tablespoon garam masala powder
-1 tablespoon cumin powder
-1 tablespoon coriander powder
-1 tablespoon fenugreek powder
-1 tablespoon smoked paprika
-1 tablespoon turmeric
-Salt and pepper to taste (I usually leave this out and simply add it to the final dish)
+* 10 large cooking onions – finely sliced
+* 250ml vegetable oil
+* 9 tablespoons garlic/ginger paste (equal amounts garlic and ginger blended into a paste with a little water.)
+* 1 carrot - peeled and chopped
+* 1/4 head of cabbage - chopped
+* 1 red bell pepper - diced
+* 1 green bell pepper - diced
+* water
+* 400ml (14 US fluid ounces ) chopped tomatoes
+* 4 tablespoons ghee (clarified butter)
+* 1 tablespoon garam masala powder
+* 1 tablespoon cumin powder
+* 1 tablespoon coriander powder
+* 1 tablespoon fenugreek powder
+* 1 tablespoon smoked paprika
+* 1 tablespoon turmeric
+* Salt and pepper to taste (I usually leave this out and simply add it to the final dish)
 
 
 Pour the oil into a large heavy bottomed saucepan and heat over medium high

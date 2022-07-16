@@ -1,25 +1,26 @@
 Pumpkin Chocolate Chip Cupcakes w/Cinnamon Glaze
+------------------------------------------------
 
-1 cup canned pumpkin
-2 Tbsp canola oil
-2 heaping Tbsp unsweetened applesauce
-1 cup sugar
-1/4 cup soymilk
-1 tsp vanilla
-3/4 cup all-purpose flour
-1/2 cup whole wheat pastry flour
-1/2 tsp baking powder
-1/2 tsp baking soda
-1/4 tsp ground cinnamon
-1/4 tsp salt
-1/4 cup mini chocolate chips
+* 1 cup canned pumpkin
+* 2 Tbsp canola oil
+* 2 heaping Tbsp unsweetened applesauce
+* 1 cup sugar
+* 1/4 cup soymilk
+* 1 tsp vanilla
+* 3/4 cup all-purpose flour
+* 1/2 cup whole wheat pastry flour
+* 1/2 tsp baking powder
+* 1/2 tsp baking soda
+* 1/4 tsp ground cinnamon
+* 1/4 tsp salt
+* 1/4 cup mini chocolate chips
 
 For the glaze:
-1/2 cup powdered sugar
-1/4 tsp ground cinnamon
-2 Tbsp Earth Balance, melted
-1 Tbsp soymilk
-1/2 tsp vanilla
+* 1/2 cup powdered sugar
+* 1/4 tsp ground cinnamon
+* 2 Tbsp Earth Balance, melted
+* 1 Tbsp soymilk
+* 1/2 tsp vanilla
 
 
 Preheat the oven to 350 degrees.

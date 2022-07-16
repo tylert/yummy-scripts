@@ -1,4 +1,6 @@
 OMFG Delicious No Knead Bread
+-----------------------------
+
 (5 out of 5 thumbs up.  30 Helens agree that this is the best bread.)
 
 * 3 cups all purpose flour

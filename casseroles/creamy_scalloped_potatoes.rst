@@ -1,4 +1,5 @@
 Creamy Scalloped Potatoes
+-------------------------
 
 * 1 small cooking onion
 * 3 tbsp butter

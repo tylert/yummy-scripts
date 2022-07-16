@@ -1,14 +1,14 @@
 Easy Oatmeal Muffins
+--------------------
 
-1 cup milk
-1 cup quick cooking oats
-1 egg
-1/4 cup vegetable oil
-1 cup all-purpose flour
-1/4 cup white sugar
-2 teaspoons baking powder
-1/2 teaspoon salt
-Add all ingredients to list
+* 1 cup milk
+* 1 cup quick cooking oats
+* 1 egg
+* 1/4 cup vegetable oil
+* 1 cup all-purpose flour
+* 1/4 cup white sugar
+* 2 teaspoons baking powder
+* 1/2 teaspoon salt
 
 Preheat oven to 425 degrees F (220 degrees C). Grease muffin cups or line
 with paper muffin liners.

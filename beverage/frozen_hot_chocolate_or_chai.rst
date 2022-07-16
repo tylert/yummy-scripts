@@ -1,4 +1,5 @@
 Frozen Hot Chocolate or Frozen Chai
+-----------------------------------
 
 * 2 tbsp powdered hot chocolate or powdered chai
 * 200 mL of milk or milk substitute (e.g.:  almond milk)

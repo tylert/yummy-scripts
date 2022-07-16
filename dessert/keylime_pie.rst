@@ -1,21 +1,22 @@
 Key Lime Pie
+------------
 
 Crust
-1 1/2 - 2 cups of graham cracker crumbs*
-1/4 cup sugar
-4 tbsp butter. melted
+* 1 1/2 - 2 cups of graham cracker crumbs*
+* 1/4 cup sugar
+* 4 tbsp butter. melted
 
 Filling
-3 cups (24 oz) sweetened condensed milk
-1/2 cup sour cream
-3/4 cup key lime juice (if you can't get key limes, from a bottle is fine, found in baking aisle)
-2 egg yolks
-Zest from 1 lime (or key lime)
+* 3 cups (24 oz) sweetened condensed milk
+* 1/2 cup sour cream
+* 3/4 cup key lime juice (if you can't get key limes, from a bottle is fine, found in baking aisle)
+* 2 egg yolks
+* Zest from 1 lime (or key lime)
 
 Whipped Cream
-8 oz heavy cream (very cold)
-1 tbsp vanilla
-3-4 tbsp powdered sugar
+* 8 oz heavy cream (very cold)
+* 1 tbsp vanilla
+* 3-4 tbsp powdered sugar
 
 
 Preheat oven to 350 degrees.

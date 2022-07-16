@@ -1,4 +1,5 @@
 Coffee Ice Cream
+----------------
 
 * 1 1/2 cup milk
 * 1/2 cup granulated sugar

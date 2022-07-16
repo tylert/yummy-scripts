@@ -1,3 +1,6 @@
+Soy Milk And Tofu
+-----------------
+
 In order to make soy milk, you need two cups of soy beans and six cups of
 water to start.  Put the beans and water in a large bowl and let them soak
 for twelve hours or so--the beans should be doubled in size.  Discard the

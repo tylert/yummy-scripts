@@ -1,17 +1,18 @@
 No Bake Oreo Lemon Cheesecake
+-----------------------------
 
 Crust:
-22 Lemon Oreo Cookies
-3 tbsp melted Butter
-1 tbsp Sugar
+* 22 Lemon Oreo Cookies
+* 3 tbsp melted Butter
+* 1 tbsp Sugar
 
 Filling:
-16 oz softened Cream Cheese
-16 oz Heavy Cream
-1 cup Sugar
-1/4 cup Powdered Sugar
-1 small box Lemon Gelatin
-t tbsp Lemon Juice
+* 16 oz softened Cream Cheese
+* 16 oz Heavy Cream
+* 1 cup Sugar
+* 1/4 cup Powdered Sugar
+* 1 small box Lemon Gelatin
+* t tbsp Lemon Juice
 
 Crush Oreos in food processor and add melted butter and sugar.
 Press mixture into bottom and partway up sides of springform pan.

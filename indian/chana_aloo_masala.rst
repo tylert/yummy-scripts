@@ -1,18 +1,19 @@
 Chana Aloo Masala (Chickpea and Potato Masala)
+----------------------------------------------
 
-1 lb russet potato
-2 Tbsp olive oil
-1 yellow onion
-2 cloves garlic
-2 Tbsp fresh grated ginger
-1 Tbsp garam masala (or to taste)
-28 oz can crushed tomatoes
-2 Tbsp tomato paste
-1/2 tsp salt (or to taste)
-15 oz can chickpeas
-1/4 bunch fresh cilantro (optional)
-6 oz plain yogurt (optional)
-4 cups cooked rice (optional)
+* 1 lb russet potato
+* 2 Tbsp olive oil
+* 1 yellow onion
+* 2 cloves garlic
+* 2 Tbsp fresh grated ginger
+* 1 Tbsp garam masala (or to taste)
+* 28 oz can crushed tomatoes
+* 2 Tbsp tomato paste
+* 1/2 tsp salt (or to taste)
+* 15 oz can chickpeas
+* 1/4 bunch fresh cilantro (optional)
+* 6 oz plain yogurt (optional)
+* 4 cups cooked rice (optional)
 
 
 Peel the potato and cut it into one-inch cubes. Place the cubes in a sauce

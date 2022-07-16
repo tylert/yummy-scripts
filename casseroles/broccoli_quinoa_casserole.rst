@@ -1,4 +1,5 @@
 Cheesy Broccoli Quinoa Casserole
+--------------------------------
 
 * 1 1/2 cups quinoa, uncooked
 * 2 crowns of broccoli, cut into small florets

@@ -1,4 +1,5 @@
 Jalapeno Cheddar Cornbread
+--------------------------
 
 * 2 jalapenos
 * 1 1/2 cups cheddar, shredded

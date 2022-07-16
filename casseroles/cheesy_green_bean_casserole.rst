@@ -1,4 +1,5 @@
 Cheesy Green Bean Casserole
+---------------------------
 
 * 2 lb. green beans, cleaned with ends removed
 * 1/2 c. heavy cream

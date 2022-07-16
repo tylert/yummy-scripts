@@ -1,11 +1,12 @@
 Kheer (Rice Pudding)
+--------------------
 
-1500 ml fresh milk
-100 g rice
-5 tbsp sugar
-2 tbsp Milmmaid
-3 cardamoms (powder) 3
-Chopped almonds, cashewnuts, pistacchios for garnising
+* 1500 ml fresh milk
+* 100 g rice
+* 5 tbsp sugar
+* 2 tbsp Milmmaid
+* 3 cardamoms (powder) 3
+* Chopped almonds, cashewnuts, pistacchios for garnising
 
 
 Wash rice well and soak for 10 minutes. Boil the milk.  Add rice and cook on

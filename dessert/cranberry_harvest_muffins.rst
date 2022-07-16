@@ -1,4 +1,5 @@
 Cranberry Harvest Muffins
+-------------------------
 
 * 3 cups all-purpose flour (1 cup multigrain, 2 cup all purpose)
 * 1 tablespoon baking powder

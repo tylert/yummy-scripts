@@ -1,4 +1,5 @@
 Microwave Lemon Curd
+--------------------
 
 * 1 cup white sugar
 * 3 eggs

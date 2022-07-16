@@ -6,7 +6,7 @@ Cinnamon Waffles
 * 4 tbsp sugar
 * 1 tbsp cinnamon
 * 1 tsp vanilla extract
-* 4 tbsp melted butter (or oil if your choice)
+* 4 tbsp melted butter (or oil of your choice)
 * 2 cups vanilla almond milk (or milk of your choice)
 
 In a large bowl combine all dry ingredients.
@@ -17,8 +17,8 @@ combined.
 
 Follow waffle maker instructions for cooking time.
 
-This is a double batch, so spliting it in half will work pefectly.  The double
-batch makes 10-11 rectangle 6x4 waffles.
+This is a double batch, so spliting it in half will work pefectly. The double
+batch makes 12-13 rectangle 6x4 waffles.
 
 They freeze really well, so you will have future breakfasts in a few minutes.
 Let them cool completely then put into a freezer safe container or plastic bag.

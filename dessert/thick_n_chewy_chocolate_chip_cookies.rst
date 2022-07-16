@@ -1,14 +1,15 @@
 Thick N' Chewy Chocolate Chip Cookies
+-------------------------------------
 
-2 1/4 cups of all purpose flour
-1 tsp baking soda
-1/2 cup of butter
-1 tsp salt (if using unsalted butter)
-1 cup of packed brown sugar
-1/2 cup of granulated sugar
-1 1/2 tsp vanilla
-2 eggs
-2 cups of semi-sweet chocolate chips
+* 2 1/4 cups of all purpose flour
+* 1 tsp baking soda
+* 1/2 cup of butter
+* 1 tsp salt (if using unsalted butter)
+* 1 cup of packed brown sugar
+* 1/2 cup of granulated sugar
+* 1 1/2 tsp vanilla
+* 2 eggs
+* 2 cups of semi-sweet chocolate chips
 
 
 Preheat oven to 350 degrees.

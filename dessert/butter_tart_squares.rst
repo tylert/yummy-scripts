@@ -1,4 +1,5 @@
 Butter Tart Squares
+-------------------
 
 Crust:
 

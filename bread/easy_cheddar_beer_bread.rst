@@ -1,4 +1,5 @@
 Easy Cheddar Beer Bread
+-----------------------
 
 * 3 cups all-purpose flour
 * 1 cup shredded sharp cheddar cheese

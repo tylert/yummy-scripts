@@ -1,13 +1,14 @@
 Fresh Pumpkin Pie
+-----------------
 
-1 sugar pumpkin
-1 recipe pastry for a 9 inch single crust pie
-2 eggs
-1 cup packed light brown sugar
-1 tablespoon all-purpose flour
-1/2 teaspoon salt
-2 1/2 teaspoons pumpkin pie spice
-1 (12 fluid ounce) can evaporated milk
+* 1 sugar pumpkin
+* 1 recipe pastry for a 9 inch single crust pie
+* 2 eggs
+* 1 cup packed light brown sugar
+* 1 tablespoon all-purpose flour
+* 1/2 teaspoon salt
+* 2 1/2 teaspoons pumpkin pie spice
+* 1 (12 fluid ounce) can evaporated milk
 
 
 Cut pumpkin in half and remove seeds. Place cut side down on a cookie sheet

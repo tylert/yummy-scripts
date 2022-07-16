@@ -1,4 +1,5 @@
 Hash Brown Brunch Casserole
+---------------------------
 
 * 1 1kg package of frozen hashbrowns, defrosted
 * 1 10oz. can cream of mushroom soup

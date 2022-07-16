@@ -1,4 +1,5 @@
 Lofthouse Sugar Cookies
+-----------------------
 
 Cookies:
 

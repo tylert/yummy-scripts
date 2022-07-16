@@ -1,18 +1,19 @@
 No Bake Cherry Chocolate Chip Cheesecake
+----------------------------------------
 
 Crust:
-22 Oreo Cookies
-3 tbsp melted Butter
-1 tbsp Sugar
+* 22 Oreo Cookies
+* 3 tbsp melted Butter
+* 1 tbsp Sugar
 
 Filling:
-16 oz softened Cream Cheese
-16 oz Heavy Cream
-1 cup Sugar
-1/4 cup Powdered Sugar
-1 large box (6 oz) Cherry Gelatin
-12 oz frozen Cherries
-2 cup Semisweet Chocolate Chips
+* 16 oz softened Cream Cheese
+* 16 oz Heavy Cream
+* 1 cup Sugar
+* 1/4 cup Powdered Sugar
+* 1 large box (6 oz) Cherry Gelatin
+* 12 oz frozen Cherries
+* 2 cup Semisweet Chocolate Chips
 
 
 Set cherries on counter to soften.

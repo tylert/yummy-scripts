@@ -1,12 +1,13 @@
 Reeces Peanut Butter No-Bake Bars
+---------------------------------
 
-1 cup salted butter (melted)
-2 cups keebler graham cracker crumbs
-1/4 cup brown sugar
-1 3/4 cup powdered sugar
-1 cup peanut butter
-1/2 tsp. vanilla
-1 (11 oz) bag milk chocolate chips
+* 1 cup salted butter (melted)
+* 2 cups keebler graham cracker crumbs
+* 1/4 cup brown sugar
+* 1 3/4 cup powdered sugar
+* 1 cup peanut butter
+* 1/2 tsp. vanilla
+* 1 (11 oz) bag milk chocolate chips
 
 
 Combine all ingredients, except chocolate chips in a medium sized bowl.

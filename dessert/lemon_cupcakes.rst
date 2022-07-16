@@ -1,23 +1,24 @@
 Lemon Cupcakes with Lemon Cream Cheese Frosting
+-----------------------------------------------
 
 Cupcakes
-1 1/4 cups cake flour
-1 teaspoon baking powder
-1/8 teaspoon salt
-1/2 cup (1 stick) unsalted butter, at room temperature
-1 cup sugar
-2 large eggs
-1 tablespoon lemon juice
-2 teaspoons grated lemon zest
-1 teaspoon vanilla extract
-1/2 cup whole milk
+* 1 1/4 cups cake flour
+* 1 teaspoon baking powder
+* 1/8 teaspoon salt
+* 1/2 cup (1 stick) unsalted butter, at room temperature
+* 1 cup sugar
+* 2 large eggs
+* 1 tablespoon lemon juice
+* 2 teaspoons grated lemon zest
+* 1 teaspoon vanilla extract
+* 1/2 cup whole milk
 
 Frosting
-1/2 cup (1 stick) unsalted butter, at room temperature
-4 ounces cream cheese, at room temperature
-2 teaspoons finely grated lemon peel
-1 teaspoon vanilla extract
-2 cups powdered sugar
+* 1/2 cup (1 stick) unsalted butter, at room temperature
+* 4 ounces cream cheese, at room temperature
+* 2 teaspoons finely grated lemon peel
+* 1 teaspoon vanilla extract
+* 2 cups powdered sugar
 
 
 Position a rack in the middle of the oven. Preheat the oven to 350 F.

@@ -1,4 +1,5 @@
 Ginger Beer
+-----------
 
 * an empty 2L bottle
 * 2L of water
