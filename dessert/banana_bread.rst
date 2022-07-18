@@ -10,7 +10,6 @@ Banana Bread
 * 1/2 tsp baking powder
 * 2 cups flour
 
-
 Preheat oven to 350 degrees F.
 
 Mix oil with sugar until sugar is all wet, stir in milk until sugar is mostly

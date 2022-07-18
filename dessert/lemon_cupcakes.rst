@@ -20,7 +20,6 @@ Frosting
 * 1 teaspoon vanilla extract
 * 2 cups powdered sugar
 
-
 Position a rack in the middle of the oven. Preheat the oven to 350 F.
 Line 12 muffin tin cups with paper cupcake liners.
 Make the cupcakes. Sift the cake flour, baking powder, and salt into a medium bowl and set aside.

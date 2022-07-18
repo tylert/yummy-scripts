@@ -7,7 +7,6 @@ Coffee Ice Cream
 * 1 1/2 cups heavy cream
 * 1 tsp vanilla extract
 
-
 Mix milk, sugar, and coffee with a whisk until that sugar and
 coffee dissolve in the milk.
 

@@ -12,7 +12,6 @@ the sugar, one cup at a time, beating well after each addition. Beat in milk
 and continue mixing until light and fluffy. Keep icing covered until ready to
 decorate.
 
-
 I often will use a cup of butter instead of 1/2 and 1/2.
 
 You can also add more milk to make it a bit thinner for some of the decorating

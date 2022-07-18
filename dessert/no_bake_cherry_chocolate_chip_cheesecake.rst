@@ -15,7 +15,6 @@ Filling:
 * 12 oz frozen Cherries
 * 2 cup Semisweet Chocolate Chips
 
-
 Set cherries on counter to soften.
 Crush Oreos in food processor and add melted butter and sugar.
 Press mixture into bottom and partway up sides of springform pan.

@@ -2,7 +2,6 @@ Lofthouse Sugar Cookies
 -----------------------
 
 Cookies:
-
 * 3 cups all-purpose flour
 * 1 cup sugar
 * 1/2 cup (1 stick) unsalted butter, room temperature
@@ -15,7 +14,6 @@ Cookies:
 * 1/4 teaspoon salt
 
 Frosting:
-
 * 1/2 cup (1 stick) unsalted butter, room temperature
 * 3 cups powdered sugar
 * 2 tablespoons vegetable shortening, optional
@@ -23,7 +21,6 @@ Frosting:
 * 2-3 tablespoons whole milk or heavy cream
 * food coloring, if desired
 * sprinkles, garnish
-
 
 Preheat oven to 425º F and line two baking sheets with parchment paper.
 

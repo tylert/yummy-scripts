@@ -15,7 +15,6 @@ Lemon Loaf
 * zest of one lemon
 
 Glaze:
-
 * 1 cup powdered sugar
 * 2 tablespoons whole milk
 * 1/2 teaspoon lemon extract

@@ -8,7 +8,6 @@ Kheer (Rice Pudding)
 * 3 cardamoms (powder) 3
 * Chopped almonds, cashewnuts, pistacchios for garnising
 
-
 Wash rice well and soak for 10 minutes. Boil the milk.  Add rice and cook on
 slow fire stirring occasionally until rice floats on top and milk thickens. Add
 sugar and Milkmaid. Pour into a serving bowl and garnish just before serving.

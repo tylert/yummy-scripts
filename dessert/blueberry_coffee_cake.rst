@@ -10,7 +10,6 @@ Blueberry Coffeecake
 * 3/4 cup (175 mL) buttermilk or soured milk or skim milk
 * 1 can (19 oz/540 mL) blueberry pie filling
 
-
 In a large bowl combine flour and sugar. Cut in butter until mixture is crumbly
 set aside 1/2 cup (125 mL) of mixture.
 

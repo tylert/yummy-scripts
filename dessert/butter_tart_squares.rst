@@ -2,13 +2,11 @@ Butter Tart Squares
 -------------------
 
 Crust:
-
 * 1 cup (250 mL) all-purpose flour
 * 1/4 cup (60 mL) granulated sugar
 * 1/2 cup (125 mL) butter
 
 Topping:
-
 * 2 tbsp (30 mL) butter, melted
 * 2 eggs, lightly beaten
 * 1 cup (250 mL) packed brown sugar
@@ -18,7 +16,6 @@ Topping:
 * 1 pinch salt
 * 1 cup (250 mL) raisins
 * 1/2 cup (125 mL) coarsely chopped pecans
-
 
 In bowl, combine flour with sugar; with pastry blender, cut in butter until
 crumbly. Press into 9-inch (2.5 L) square cake pan; bake in 350°F (180°C) oven

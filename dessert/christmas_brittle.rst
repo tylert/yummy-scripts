@@ -7,7 +7,6 @@ Christmas Brittle
 * 2 cups chocolate chips
 * Sprinkles (optional)
 
-
 Preheat oven to 400 degrees and line a cookie sheet (15x10”) with parchment
 paper (or alum foil) and arrange the crackers into a single layer, salted side down.
 Combine the sugar and butter over medium/low heat, stirring constantly.

@@ -18,7 +18,6 @@ Whipped Cream
 * 1 tbsp vanilla
 * 3-4 tbsp powdered sugar
 
-
 Preheat oven to 350 degrees.
 Pulse graham crackers in your food processor until they become crumbs (or buy crumbs).
 Add in sugar butter and pulse until combined.

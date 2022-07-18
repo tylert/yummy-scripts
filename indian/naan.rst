@@ -1,9 +1,10 @@
 Indian Fry Bread
+----------------
 
-1 1/2 cup flour
-1/2 tsp salt
-1 tsp baking powder
-1/2 cup+ warm water
+* 1 1/2 cup flour
+* 1/2 tsp salt
+* 1 tsp baking powder
+* 1/2 cup+ warm water
 
 Mix ingredients together and knead it for a few minutes. Add flour as needed so
 dough isn't too sticky. Separate into egg shaped balls. Flatten each ball to

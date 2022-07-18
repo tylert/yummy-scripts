@@ -1,33 +1,22 @@
-Red Lentil Dahl
+Red Lentil Dahl (Masoor Dal Curry)
+----------------------------------
 
-This easy, creamy red lentil dahl (masoor dal curry) is frugal, hearty,
-comforting, flavorful, packed with plant-based protein, and ready in just 30
-minutes! Serve with home-cooked rice and naan bread for a gluten-free,
-dairy-free Indian-inspired feast!
-
-Prep Time 10 mins
-Cook Time 20 mins
-Total Time 30 mins
-
-1 1/2 cups (300 g) dry red lentils
-1 large (200 g) carrot finely diced (see notes)
-1 small bell pepper
-1 large onion chopped
-4 cloves of garlic minced
-1 heaped tbsp fresh ginger minced
-1/2 tbsp vegetable oil
-3 cups (720 ml) vegetable broth or water
-1 cup (240 ml) canned coconut milk
-1 1/2 tsp ground cumin
-1 tbsp curry powder
-1/2 tbsp sweetener of choice
-1 tsp ground turmeric
-1 tsp paprika
-Sea salt and black pepper to taste
-1/3 tsp red pepper flakes (optional)
-
-
-You can watch the short video for visual instructions.
+* 1 1/2 cups (300 g) dry red lentils
+* 1 large (200 g) carrot finely diced (see notes)
+* 1 small bell pepper
+* 1 large onion chopped
+* 4 cloves of garlic minced
+* 1 heaped tbsp fresh ginger minced
+* 1/2 tbsp vegetable oil
+* 3 cups (720 ml) vegetable broth or water
+* 1 cup (240 ml) canned coconut milk
+* 1 1/2 tsp ground cumin
+* 1 tbsp curry powder
+* 1/2 tbsp sweetener of choice
+* 1 tsp ground turmeric
+* 1 tsp paprika
+* Sea salt and black pepper to taste
+* 1/3 tsp red pepper flakes (optional)
 
 Rinse lentils under running water. Chop the onion, garlic, ginger, bell pepper,
 and carrot.
@@ -45,3 +34,7 @@ Season with black pepper and salt. Taste and adjust the seasonings as needed.
 
 Serve warm with basmati rice, potatoes, or naan (flatbread) and garnish with
 fresh herbs.
+
+Prep Time 10 mins
+Cook Time 20 mins
+Total Time 30 mins

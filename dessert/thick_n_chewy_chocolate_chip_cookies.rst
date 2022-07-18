@@ -11,7 +11,6 @@ Thick N' Chewy Chocolate Chip Cookies
 * 2 eggs
 * 2 cups of semi-sweet chocolate chips
 
-
 Preheat oven to 350 degrees.
 
 Cream together your butter and sugar until it is light and fluffy. Add in the

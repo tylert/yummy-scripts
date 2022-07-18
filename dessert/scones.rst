@@ -35,7 +35,6 @@ Scones – dropped
 * (savory option) 1 tsp dried thyme, 1 tsp dried sweet basil and 1 cup of grated old cheddar
 * (add basil and thyme before cutting in the butter, add cheese before adding milk)
 
-
 Mix all dry ingredients and cut in butter.  Add in remaining flavour ingredients.
 Mix milk and vanilla flavouring together and pour over dry ingredients.
 

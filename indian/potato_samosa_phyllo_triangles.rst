@@ -1,15 +1,15 @@
 Potato Samosa Phyllo Triangles
+------------------------------
 
-1 1/2 pound Yukon Gold or boiling potatoes
-1 large onion, chopped (2 3/4 cups)
-1 teaspoon garam masala (Indian spice blend)
-1 teaspoon cumin seeds
-1 teaspoon coriander seeds
-1/4 cup vegetable oil
-1/2 cup frozen peas, thawed
-12 (17- by 12-inch) phyllo sheets, thawed if frozen
-3/4 stick unsalted butter, melted and cooled
-
+* 1 1/2 pound Yukon Gold or boiling potatoes
+* 1 large onion, chopped (2 3/4 cups)
+* 1 teaspoon garam masala (Indian spice blend)
+* 1 teaspoon cumin seeds
+* 1 teaspoon coriander seeds
+* 1/4 cup vegetable oil
+* 1/2 cup frozen peas, thawed
+* 12 (17- by 12-inch) phyllo sheets, thawed if frozen
+* 3/4 stick unsalted butter, melted and cooled
 
 Peel potatoes and cut into 1/2-inch cubes. Put in a medium saucepan with 1
 teaspoon salt and enough water to cover by 1 inch. Simmer until tender, about

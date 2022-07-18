@@ -15,7 +15,6 @@ Cranberry Harvest Muffins
 * 1/2 cup sunflower seeds
 * 1 cup brown sugar, packed
 
-
 Preheat the oven to 375 degrees F.
 
 Line 18 muffin cups with paper liners.  Sift together the flour, baking powder,

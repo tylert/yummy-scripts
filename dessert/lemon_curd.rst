@@ -7,7 +7,6 @@ Microwave Lemon Curd
 * zest of 3 lemons
 * 1/2 cup unsalted butter, melted
 
-
 In a large microwave-safe bowl, whisk together the sugar and eggs until smooth
 and thoroughly combined. Whisk in lemon juice, lemon zest and butter.
 
