@@ -1,5 +1,5 @@
-Panera Garden Vegetable Soup with Pesto Recipe
-----------------------------------------------
+Garden Vegetable Soup with Pesto Recipe
+---------------------------------------
 
 * 6 cups vegetable broth
 * 1/2 cup pearled barley
