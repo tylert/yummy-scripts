@@ -1,8 +1,6 @@
 Chana Aloo Saag Balti
 ---------------------
 
-Prep Time: 10 minutes Cook Time: 10 minutes Total Time: 20 minutes
-
 * 2 tbsp ghee or rapeseed (canola) oil
 * 1/2 tsp cumin seeds
 * 1/2 onion - finely chopped
@@ -36,3 +34,5 @@ Add the spinach and chickpeas and stir this into the sauce. Simmer for a
 further three minutes and then add the quartered tomato.
 
 Season with salt to taste.
+
+Prep Time: 10 minutes Cook Time: 10 minutes Total Time: 20 minutes

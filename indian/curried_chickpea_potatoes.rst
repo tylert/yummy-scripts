@@ -17,7 +17,6 @@ Curry paste:
 * 1/4 tsp. hot pepper sauce (optional)
 * 4 tbsp water
 
-
 Peel and cut potatoes
 
 Drain and rinse chickpea

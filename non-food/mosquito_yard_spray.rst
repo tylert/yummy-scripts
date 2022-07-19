@@ -1,8 +1,9 @@
 Mosquito Yard Spray
+-------------------
 
-1 large bottle of cheap mouthwash
-3 cups epsom salt
-3 stale 120z cheap beer
+* 1 large bottle of cheap mouthwash
+* 3 cups epsom salt
+* 3 stale 120z cheap beer
 
 Mix ingredients together until salt is disolved
 

@@ -10,7 +10,6 @@ Cheesy Green Bean Casserole
 * pinch red pepper flakes
 * 2 tsp. lemon zest
 
-
 Preheat oven to 400°. Place green beans into a shallow baking dish or skillet.
 Pour cream over beans and scatter garlic.
 

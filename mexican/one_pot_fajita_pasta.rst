@@ -1,19 +1,19 @@
 One-Pot Fajita Pasta
+--------------------
 
-3 tbsp. oil
-1 red bell pepper, sliced
-1 green bell pepper, sliced
-1 yellow bell pepper, sliced
-1 onion, sliced
-1 tsp salt
-1 tsp pepper
-1 tbsp. chili powder
-1 tbsp. cumin
-1 tbsp. garlic powder
-5 cups milk
-4 cups penne pasta
-1 cup pepper jack cheese, shredded
-
+* 3 tbsp. oil
+* 1 red bell pepper, sliced
+* 1 green bell pepper, sliced
+* 1 yellow bell pepper, sliced
+* 1 onion, sliced
+* 1 tsp salt
+* 1 tsp pepper
+* 1 tbsp. chili powder
+* 1 tbsp. cumin
+* 1 tbsp. garlic powder
+* 5 cups milk
+* 4 cups penne pasta
+* 1 cup pepper jack cheese, shredded
 
 Heat oil in a large pot over high heat.
 Add chicken and cook until no pink is visible, then take the chicken out.

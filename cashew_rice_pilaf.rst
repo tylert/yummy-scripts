@@ -1,18 +1,18 @@
 Cashew Rice Pilaf
+-----------------
 
-2 tbsp butter
-1 clove garlic, minced
-1/2 tsp turmeric
-1/2 tsp cumin
-1/4 tsp cinnamon
-2 cups uncooked jasmine rice
-1/2 cup chopped cashews
-1/4 cup dried fruit raisins, cranberries or chopped apricots
-3 cups water
-3/4 tsp salt
-1 whole bay leaf
-1/4 bunch cilantro (optional)
-
+* 2 tbsp butter
+* 1 clove garlic, minced
+* 1/2 tsp turmeric
+* 1/2 tsp cumin
+* 1/4 tsp cinnamon
+* 2 cups uncooked jasmine rice
+* 1/2 cup chopped cashews
+* 1/4 cup dried fruit raisins, cranberries or chopped apricots
+* 3 cups water
+* 3/4 tsp salt
+* 1 whole bay leaf
+* 1/4 bunch cilantro (optional)
 
 Place the butter, minced garlic, turmeric, cumin, and cinnamon in a medium
 sauce pot. Turn the heat on to medium-low, then stir and cook the butter and

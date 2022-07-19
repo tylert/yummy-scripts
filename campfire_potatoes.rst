@@ -1,13 +1,13 @@
 Campfire Potatoes
+-----------------
 
-1 1/2 lb New Red Potatoes
-1 large Onion
-1 tbsp Minced Garlic
-4 tbsp Butter
-1-2 tbsp Worchestershire Sauce
-1/8 tsp Cayenne Pepper
-Salt and Pepper to taste
-
+* 1 1/2 lb New Red Potatoes
+* 1 large Onion
+* 1 tbsp Minced Garlic
+* 4 tbsp Butter
+* 1-2 tbsp Worchestershire Sauce
+* 1/8 tsp Cayenne Pepper
+* Salt and Pepper to taste
 
 Slice potatoes and onion into 1/8 – 1/4″ slices.
 Place on piece of aluminum foil large enough to fold over and to be able to

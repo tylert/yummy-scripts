@@ -1,16 +1,16 @@
 Creamy Curry TVP
+----------------
 
-1/4 large white onion, diced
-2 cloves of garlic
-1 1/2 cups cabbage, coursely chopped
-1 cup of frozen corn
-1 cup of frozen french green beans
-1 cup dry TVP, rehydrated with 3/4 cup boiling water
-1 can of PC Cream of mushroom (540ml)
-2 tsp curry
-1 tsp turmeric
-dash chili flakes
-
+* 1/4 large white onion, diced
+* 2 cloves of garlic
+* 1 1/2 cups cabbage, coursely chopped
+* 1 cup of frozen corn
+* 1 cup of frozen french green beans
+* 1 cup dry TVP, rehydrated with 3/4 cup boiling water
+* 1 can of PC Cream of mushroom (540ml)
+* 2 tsp curry
+* 1 tsp turmeric
+* dash chili flakes
 
 In large frying pan, sautee onion, garlic and cabbage, with small amout of
 water, until onions are tender

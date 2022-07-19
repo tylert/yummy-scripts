@@ -1,22 +1,22 @@
 Creamy Aloo Saag
+----------------
 
-Fresh Spinach - 10 oz. bag (boiled & grinded)
-Garlic - 4 cloves (roughly chopped)
-Ginger - 1 inch piece (chopped)
-Green Chillies - 2 to 3 (chopped)
-Onions - 2 small (chopped)
-Oil - 1.5 tbsp
-Cumin Seeds - 1 tsp
-Turmeric Powder - 1/2 tsp
-Potatoes - 3 small (bite size cubes)
-Tomato - 1 (chopped)
-Red Chili Powder - 1 tsp
-Coriander Powder - 3 tsp
-salt to taste
-Garam Masala - 1 tsp
-Light Sour Cream - 2 to 3 dollups
-Dry Fenugreek Leaves - 2 big spoons
-
+* Fresh Spinach - 10 oz. bag (boiled & grinded)
+* Garlic - 4 cloves (roughly chopped)
+* Ginger - 1 inch piece (chopped)
+* Green Chillies - 2 to 3 (chopped)
+* Onions - 2 small (chopped)
+* Oil - 1.5 tbsp
+* Cumin Seeds - 1 tsp
+* Turmeric Powder - 1/2 tsp
+* Potatoes - 3 small (bite size cubes)
+* Tomato - 1 (chopped)
+* Red Chili Powder - 1 tsp
+* Coriander Powder - 3 tsp
+* salt to taste
+* Garam Masala - 1 tsp
+* Light Sour Cream - 2 to 3 dollups
+* Dry Fenugreek Leaves - 2 big spoons
 
 Boil a pot of water.
 

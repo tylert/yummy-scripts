@@ -9,7 +9,6 @@ Easy Cheddar Beer Bread
 * 1 12-ounce bottle of beer
 * 4 tablespoons butter, softened
 
-
 Preheat the oven to 350°F. Grease a 9×5″ loaf pan with half of of the butter.
 
 Whisk flour, baking powder, sugar and salt together.

@@ -1,19 +1,19 @@
 Lentil Curry
+------------
 
-1 1/2 - 2 cups Lentils
-Water (measure with finger)
-4-5 garlic
-1 tsp turmeric powder
-Oil
-10-12 curry leaves
-1/2  onion
-3 green chillis
-2 red dry chillis
-Salt to taste
-Spices (long and small Cumin Seeds, Mustard and Fenugreek)
-1 1/2 or 2 tbs Coconut powder
-3/4 or 1 cup water (mix the maggi powder in a hot water)
-
+* 1 1/2 - 2 cups Lentils
+* Water (measure with finger)
+* 4-5 garlic
+* 1 tsp turmeric powder
+* Oil
+* 10-12 curry leaves
+* 1/2  onion
+* 3 green chillis
+* 2 red dry chillis
+* Salt to taste
+* Spices (long and small Cumin Seeds, Mustard and Fenugreek)
+* 1 1/2 or 2 tbs Coconut powder
+* 3/4 or 1 cup water (mix the maggi powder in a hot water)
 
 Wash lentils well with water. Add into a pan with water, garlic and turmeric
 powder.  **Do not add salt yet. Boil on medium high heat until water is cooked

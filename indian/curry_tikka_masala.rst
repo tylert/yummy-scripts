@@ -1,26 +1,23 @@
 Tikka Masala Curry
+------------------
 
-Prep Time: 10 minutes
-Cook Time: 15 minutes
-Total Time: 25 minutes
-
-3 tbsp ghee or rapeseed (canola) oil
-1 tbsp garlic and ginger paste
-1/2 tbsp sugar (more or less to taste)
-1 tbsp ground almonds
-1 tbsp coconut flour
-70ml (1/4 cup) tomato puree
-1 tbsp mixed powder
-1 tbsp tandoori masala
-1/2 - 1 tbsp paprika
-300ml (1 1/2 cups) base curry sauce
-100ml (scant 1/3 cup) single cream (more or less to taste
-1 tsp red food colouring powder (optional)
-Juice of one lemon (optional)
-Salt to taste
-1/2 tsp dried fenugreek leaves (kasoori methi)
-1/2 tsp garam masala
-2 tbsp chopped coriander (cilantro) to taste
+* 3 tbsp ghee or rapeseed (canola) oil
+* 1 tbsp garlic and ginger paste
+* 1/2 tbsp sugar (more or less to taste)
+* 1 tbsp ground almonds
+* 1 tbsp coconut flour
+* 70ml (1/4 cup) tomato puree
+* 1 tbsp mixed powder
+* 1 tbsp tandoori masala
+* 1/2 - 1 tbsp paprika
+* 300ml (1 1/2 cups) base curry sauce
+* 100ml (scant 1/3 cup) single cream (more or less to taste
+* 1 tsp red food colouring powder (optional)
+* Juice of one lemon (optional)
+* Salt to taste
+* 1/2 tsp dried fenugreek leaves (kasoori methi)
+* 1/2 tsp garam masala
+* 2 tbsp chopped coriander (cilantro) to taste
 
 Heat the ghee/oil in a frying pan over medium high heat
 
@@ -49,3 +46,7 @@ Simmer for about a minute and pour in the cream.
 
 Stir in the fresh coriander, season with salt to taste and finish with a
 squeeze of lemon the dried fenugreek and the garam masala.
+
+Prep Time: 10 minutes
+Cook Time: 15 minutes
+Total Time: 25 minutes

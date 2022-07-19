@@ -1,19 +1,19 @@
 Lemon Risotto
+-------------
 
-2 shallots
-1 rib celery
-1/4 cup unsalted butter
-1 tablespoon olive oil
-1 1/3 cups risotto rice, preferably Arborio or Vialone Nano
-Approximately 1 quart vegetable stock
-1/2 unwaxed lemon, zested and juiced
-Needles from 2 small sprigs fresh rosemary, finely chopped
-1 egg yolk
-4 tablespoons grated Parmesan, plus more, for garnish
-4 tablespoons heavy cream
-Good grating black pepper, preferably white
-Maldon or other sea salt, to taste
-
+* 2 shallots
+* 1 rib celery
+* 1/4 cup unsalted butter
+* 1 tablespoon olive oil
+* 1 1/3 cups risotto rice, preferably Arborio or Vialone Nano
+* Approximately 1 quart vegetable stock
+* 1/2 unwaxed lemon, zested and juiced
+* Needles from 2 small sprigs fresh rosemary, finely chopped
+* 1 egg yolk
+* 4 tablespoons grated Parmesan, plus more, for garnish
+* 4 tablespoons heavy cream
+* Good grating black pepper, preferably white
+* Maldon or other sea salt, to taste
 
 Put the shallots and celery into a mini food processor and blitz
 until they are finely chopped. Heat half the butter, the oil and the

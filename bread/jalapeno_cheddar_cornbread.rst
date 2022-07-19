@@ -13,7 +13,6 @@ Jalapeno Cheddar Cornbread
 * 1 large egg
 * 1/4 cup cooking oil
 
-
 Preheat the oven to 425oF. Shred the cheddar cheese, if not purchased
 pre-shredded. Slice one of the jalapenos length-wise, scrape out the seeds,
 then dice into 1/4-inch pieces. Slice the second jalapeno into rounds, leaving

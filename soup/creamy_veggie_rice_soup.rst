@@ -1,18 +1,18 @@
 Creamy Veggie and Rice Soup
+---------------------------
 
-3 tbsp. butter
-1 onion, chopped
-2 large carrots, sliced into rounds
-2 stalks celery, thinly sliced
-1 tbsp. fresh thyme leaves, plus more for garnish
-3 cloves garlic, minced
-kosher salt
-Freshly ground black pepper
-3 tbsp. all-purpose flour
-4 cup low-sodium vegetable broth
-1 cup heavy cream
-1 cup wild rice
-
+* 3 tbsp. butter
+* 1 onion, chopped
+* 2 large carrots, sliced into rounds
+* 2 stalks celery, thinly sliced
+* 1 tbsp. fresh thyme leaves, plus more for garnish
+* 3 cloves garlic, minced
+* kosher salt
+* Freshly ground black pepper
+* 3 tbsp. all-purpose flour
+* 4 cup low-sodium vegetable broth
+* 1 cup heavy cream
+* 1 cup wild rice
 
 In a large pot or Dutch oven, melt butter. Add onion, carrots, and celery.
 

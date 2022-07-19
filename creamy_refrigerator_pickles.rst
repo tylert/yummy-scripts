@@ -1,13 +1,13 @@
 Creamy Refrigerator Pickles
+---------------------------
 
-12 med cucumbers, thinly sliced
-3 large onions, thinly sliced
-2 tbsp salt
-1 tbsp pepper
-3 cups mayonnaise
-1 cup sugar
-1/2 cup vinegar
-
+* 12 med cucumbers, thinly sliced
+* 3 large onions, thinly sliced
+* 2 tbsp salt
+* 1 tbsp pepper
+* 3 cups mayonnaise
+* 1 cup sugar
+* 1/2 cup vinegar
 
 Sprinkle salt and pepper over cucumbers and onions and let sit overnight.
 Drain and towel dry.

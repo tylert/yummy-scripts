@@ -22,7 +22,6 @@ For the glaze:
 * 1 Tbsp soymilk
 * 1/2 tsp vanilla
 
-
 Preheat the oven to 350 degrees.
 
 Line a 12-cup muffin tin or a 24-cup mini muffin tin with paper liners and mist

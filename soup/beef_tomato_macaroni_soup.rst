@@ -1,19 +1,19 @@
 Beef and Tomato Macaroni Soup
+-----------------------------
 
-2 tbsp vegetable oil
-1 med yellow onion, finely chopped
-1 med green bell pepper, finely chopped
-2 cloves garlic, minced
-1 bag frozen veggie ground round
-2 tsp chili powder
-2 tsp dried oregano
-1/2 tsp black pepper
-2 can cream of tomato soup
-1 can diced tomatoes, undranied (15 oz)
-4 cups veggie broth
-2 cups uncooked pasta
-Water - ???
-
+* 2 tbsp vegetable oil
+* 1 med yellow onion, finely chopped
+* 1 med green bell pepper, finely chopped
+* 2 cloves garlic, minced
+* 1 bag frozen veggie ground round
+* 2 tsp chili powder
+* 2 tsp dried oregano
+* 1/2 tsp black pepper
+* 2 can cream of tomato soup
+* 1 can diced tomatoes, undranied (15 oz)
+* 4 cups veggie broth
+* 2 cups uncooked pasta
+* Water - ???
 
 Heat the Vegetable oil  in a large pot over medium-high heat.
 

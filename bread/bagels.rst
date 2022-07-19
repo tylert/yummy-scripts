@@ -8,7 +8,6 @@ Bagels
 * 1 egg (for egg wash)
 * bagel seasoning of your choice
 
-
 Preheat oven to 350 degrees.
 
 Combine flour, baking powder and salt together, mix in geek yogurt until a

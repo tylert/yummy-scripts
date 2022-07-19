@@ -9,7 +9,6 @@ Reeces Peanut Butter No-Bake Bars
 * 1/2 tsp. vanilla
 * 1 (11 oz) bag milk chocolate chips
 
-
 Combine all ingredients, except chocolate chips in a medium sized bowl.  Stir
 until the mixture is smooth and creamy.  Pour peanut butter mixture into a 9x13
 pan.  Melt chocolate chips in the microwave (at 50% power) for 1-2 minutes.

@@ -1,15 +1,15 @@
 Lime Dragon Noodles
+-------------------
 
-2 packs (3 oz. each) ramen noodles
-2 tbsp sriracha
-2 tbsp soy sauce
-2 tbsp brown sugar
-1 lime
-2 tbsp butter
-2 cloves garlic
-2 green onions
-Handful fresh cilantro
-
+* 2 packs (3 oz. each) ramen noodles
+* 2 tbsp sriracha
+* 2 tbsp soy sauce
+* 2 tbsp brown sugar
+* 1 lime
+* 2 tbsp butter
+* 2 cloves garlic
+* 2 green onions
+* Handful fresh cilantro
 
 In a small bowl stir together the sriracha, soy sauce, brown sugar, and about
 1 Tbsp juice from the lime. Set the sauce aside.

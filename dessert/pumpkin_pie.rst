@@ -10,7 +10,6 @@ Fresh Pumpkin Pie
 * 2 1/2 teaspoons pumpkin pie spice
 * 1 (12 fluid ounce) can evaporated milk
 
-
 Cut pumpkin in half and remove seeds. Place cut side down on a cookie sheet
 lined with lightly oiled aluminum foil. Bake at 325 degrees F (165 degrees C)
 for 30 to 40 minutes, or until the flesh is tender when poked with a fork. Cool

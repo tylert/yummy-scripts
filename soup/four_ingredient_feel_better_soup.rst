@@ -1,13 +1,12 @@
 4 Ingredient Feel Better Soup
+-----------------------------
 
-1 (32 oz) box of low-sodium chicken broth
-1/2 cup whole wheat couscous (dry, uncooked)
-2 eggs
-2/3 cup finely grated parmesan cheese
-
-Optional: chives
-Optional: a pinch of salt
-
+* 1 (32 oz) box of low-sodium chicken broth
+* 1/2 cup whole wheat couscous (dry, uncooked)
+* 2 eggs
+* 2/3 cup finely grated parmesan cheese
+* Optional: chives
+* Optional: a pinch of salt
 
 In a medium pot, bring the chicken broth to a boil.
 

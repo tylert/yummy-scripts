@@ -1,16 +1,15 @@
 Crispy Roasted Parmesan Potatoes
+--------------------------------
 
-1 1/2 lb baby potatoes , halved (about 3.5cm / 1.75", 20 - 24 potatoes)
-2 tbsp olive oil , plus more for drizzling
+* 1 1/2 lb baby potatoes , halved (about 3.5cm / 1.75", 20 - 24 potatoes)
+* 2 tbsp olive oil , plus more for drizzling
 
 Parmesan Mixture:
-
-1/2 cup grated parmesan (dry, not fresh)
-1/2 tsp garlic powder
-1/2 tsp dried oregano or thyme
-1/2 tsp paprika
-1/2 tsp black pepper
-
+* 1/2 cup grated parmesan (dry, not fresh)
+* 1/2 tsp garlic powder
+* 1/2 tsp dried oregano or thyme
+* 1/2 tsp paprika
+* 1/2 tsp black pepper
 
 Preheat oven to 200C/400F.
 Mix Parmesan Mixture in a bowl.

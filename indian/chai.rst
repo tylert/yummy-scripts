@@ -1,7 +1,7 @@
 Homemade Chai
 -------------
 
-* 2 Tetley tea bags
+* 2 tea bags
 * 8 cardamon pods, broken open
 * 1 6-inch cinnamon stick
 * 1/2 container of sweetened condensed milk

@@ -1,17 +1,17 @@
 One-Pan Enchilada Pasta
+-----------------------
 
-2 tablespoon of extra virgin olive oil
-2 cloves of garlic, minced
-1/2 of a small onion, diced
-1 cup rehydrated tvp
-packet of low-sodium taco seasoning
-2 cups of low-sodium chicken broth
-1 19oz can of red enchilada sauce
-8oz (about 2 1/2 cups) of dried rotini pasta
-2 cups of freshly shredded Colby Jack cheese
-green onions
-black olives
-
+* 2 tablespoon of extra virgin olive oil
+* 2 cloves of garlic, minced
+* 1/2 of a small onion, diced
+* 1 cup rehydrated tvp
+* packet of low-sodium taco seasoning
+* 2 cups of low-sodium chicken broth
+* 1 19oz can of red enchilada sauce
+* 8oz (about 2 1/2 cups) of dried rotini pasta
+* 2 cups of freshly shredded Colby Jack cheese
+* green onions
+* black olives
 
 In a large skillet or sauté pan, sauté garlic and onions in olive oil over
 medium low heat until softened.

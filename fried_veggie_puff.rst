@@ -1,17 +1,17 @@
 Fried Veggie Puff
+-----------------
 
-1 medium size Raw Potatoe (peeled, & grated)
-1 medium size Raw Carrot (peeled & grated)
-1 leaf Lettuce or Iceburg (Cut very thinly)
-2 green chillies (cut very thinly)
-1/2 tsp black pepper
-1/2 tsp Chllie powder(optional)
-Salt to taste
-Water to mix
-3 cups Flour (seived)
-1/2 tsp Baking Soda
-Oil for frying
-
+* 1 medium size Raw Potatoe (peeled, & grated)
+* 1 medium size Raw Carrot (peeled & grated)
+* 1 leaf Lettuce or Iceburg (Cut very thinly)
+* 2 green chillies (cut very thinly)
+* 1/2 tsp black pepper
+* 1/2 tsp Chllie powder(optional)
+* Salt to taste
+* Water to mix
+* 3 cups Flour (seived)
+* 1/2 tsp Baking Soda
+* Oil for frying
 
 Mix flour with salt, baking soda & spices, and add the grated & chopped
 vegetables, add sufficient water to form a very thick batter. Let it stand for

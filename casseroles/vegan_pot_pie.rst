@@ -12,7 +12,6 @@
 * 8 ounces vegan "chicken" or baked tofu, cut into chunks, optional
 * 1/2 teaspoon salt, or to taste
 
-
 Preheat the oven to 400 degrees F.
 
 Heat the olive oil over medium-high heat in a large skillet. Add the onions and

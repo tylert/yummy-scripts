@@ -1,11 +1,12 @@
 Curried Couscous
+----------------
 
-the white part of 3 scallions, chopped fine
-1 tablespoon minced scallion green
-1 tablespoon unsalted butter
-1 1/2 teaspoons curry powder
-3/4 cup chicken broth
-1/2 cup couscous
+* the white part of 3 scallions, chopped fine
+* 1 tablespoon minced scallion green
+* 1 tablespoon unsalted butter
+* 1 1/2 teaspoons curry powder
+* 3/4 cup chicken broth
+* 1/2 cup couscous
 
 In a heavy saucepan cook the white part of scallion in the butter over
 moderately low heat, stirring, for 1 minute, add the curry powder, and cook the

@@ -8,7 +8,6 @@ OMFG Delicious No Knead Bread
 * 3/4 tsp salt
 * 1 /1/2 cups warm water (not boiling)
 
-
 Mix flour, yeast and salt in large mixing bowl.
 
 Stir in hot water until thoroughly mixed (don't over work).

@@ -1,16 +1,16 @@
 CopyCat Panera Broccoli Cheddar Soup Recipe
+-------------------------------------------
 
-1/2 chopped Onion
-1/4 cup melted Butter
-1/4 cup Flour
-2 cup Half and Half
-2 cup Chicken Stock
-2 large bunches Broccoli
-2 Carrots
-1/4 tsp Nutmeg
-8 oz shredded Sharp Cheddar Cheese
-Salt and Pepper to taste
-
+* 1/2 chopped Onion
+* 1/4 cup melted Butter
+* 1/4 cup Flour
+* 2 cup Half and Half
+* 2 cup Chicken Stock
+* 2 large bunches Broccoli
+* 2 Carrots
+* 1/4 tsp Nutmeg
+* 8 oz shredded Sharp Cheddar Cheese
+* Salt and Pepper to taste
 
 Cut carrots into small strips.
 

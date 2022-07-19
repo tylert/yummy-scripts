@@ -1,14 +1,14 @@
 Enchilada Rice Casserole
+------------------------
 
-2 cups dry Basmati rice
-1 cup white cheddar shredded
-1 cup Monterey Jack cheese shredded
-20 oz Enchilada sauce I used Old El Paso
-16 oz refried beans I used Old El Paso
-11 oz corn kernel drained
-cilantro for garnish
-salt and ground black pepper to taste
-
+* 2 cups dry Basmati rice
+* 1 cup white cheddar shredded
+* 1 cup Monterey Jack cheese shredded
+* 20 oz Enchilada sauce I used Old El Paso
+* 16 oz refried beans I used Old El Paso
+* 11 oz corn kernel drained
+* cilantro for garnish
+* salt and ground black pepper to taste
 
 Cook the rice. I cooked it with 4 cups of water and 1/4 cup of butter.
 Preheat oven to 350 F degrees.

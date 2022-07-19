@@ -1,15 +1,15 @@
 Portobello Mushroom Fries
+-------------------------
 
-Peanut oil, for frying
-5 large portobello mushrooms
-1/2 cup all-purpose flour
-1 1/2 cup panko bread crumbs
-1/4 cup finely grated Parmigiano-Reggiano
-2 tablespoons finely chopped fresh parsley leaves
-1/2 teaspoon red pepper flakes
-Salt and freshly ground black pepper
-3 eggs, lightly beaten
-
+* Peanut oil, for frying
+* 5 large portobello mushrooms
+* 1/2 cup all-purpose flour
+* 1 1/2 cup panko bread crumbs
+* 1/4 cup finely grated Parmigiano-Reggiano
+* 2 tablespoons finely chopped fresh parsley leaves
+* 1/2 teaspoon red pepper flakes
+* Salt and freshly ground black pepper
+* 3 eggs, lightly beaten
 
 Preheat oil in a deep-fryer to 350 degrees F.
 Remove the gills and stems from the underside of the mushrooms and trim the

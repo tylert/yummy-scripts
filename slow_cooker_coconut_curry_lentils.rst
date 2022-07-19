@@ -1,21 +1,22 @@
 Slow Cooker Coconut Curry Lentils
+---------------------------------
 
-1 yellow onion
-2 cloves garlic
-2 cups brown lentils
-1 sweet potato (about 3/4 lb.)
-2 carrots
-3 tbsp curry powder
-1/4 tsp ground cloves
-15 oz can petite diced tomatoes
-15 oz can tomato sauce
-3 cups vegetable broth
-14 oz can coconut milk (full fat)
+* 1 yellow onion
+* 2 cloves garlic
+* 2 cups brown lentils
+* 1 sweet potato (about 3/4 lb.)
+* 2 carrots
+* 3 tbsp curry powder
+* 1/4 tsp ground cloves
+* 15 oz can petite diced tomatoes
+* 15 oz can tomato sauce
+* 3 cups vegetable broth
+* 14 oz can coconut milk (full fat)
 
 Serving suggestion
-10 cups cooked rice
-1/2 red onion
-1/2 bunch cilantro or green onions
+* 10 cups cooked rice
+* 1/2 red onion
+* 1/2 bunch cilantro or green onions
 
 Dice the onion and mince the garlic. Peel the sweet potato and carrots. Dice
 the sweet potato (1/4-1/2 inch cubes) and slice the carrots.

@@ -15,7 +15,6 @@ Chana Aloo Masala (Chickpea and Potato Masala)
 * 6 oz plain yogurt (optional)
 * 4 cups cooked rice (optional)
 
-
 Peel the potato and cut it into one-inch cubes. Place the cubes in a sauce
 pot, add enough water to cover the potatoes by one inch, and bring the pot to
 a boil over high heat. Boil the potatoes for 5-7 minutes, or until they can

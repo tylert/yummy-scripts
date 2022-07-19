@@ -1,12 +1,13 @@
 Salsa Homemade
+--------------
 
-1 or 2 jalapeno peppers
-1/2 large white onion
-2 cloves of garlic
-2 cilantro cubes
-2 tbsp lime juice
-1 tbsp ground cumin
-1 can of whole tomatoes
+* 1 or 2 jalapeno peppers
+* 1/2 large white onion
+* 2 cloves of garlic
+* 2 cilantro cubes
+* 2 tbsp lime juice
+* 1 tbsp ground cumin
+* 1 can of whole tomatoes
 
 Makes 2.5 cups (10 - 1/4 cup servings)
 

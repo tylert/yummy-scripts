@@ -10,7 +10,6 @@ Easy Garlic and Herb Pull-Apart Loaf
 * 1/2 tsp Oregano
 * 1/2 tsp Onion Powder
 
-
 Grease loaf pan and set set aside. Preheat oven to 350.
 
 Open biscuits and cut each in half (making 2 thinner circles).

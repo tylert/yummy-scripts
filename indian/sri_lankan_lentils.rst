@@ -1,16 +1,16 @@
 Sri Lankan Lentils Recipe
+-------------------------
 
-2 cups red lentils
-2 medium onions, sliced finely
-2 small red chilies, seeded and chopped finely
-2 tablespoons cooking oil
-1 teaspoon turmeric, ground
-6 curry leaves
-2 cups coconut milk
-1 cup vegetable stock
-1 cinnamon stick
-10 cm lemon grass (white part only)
-
+* 2 cups red lentils
+* 2 medium onions, sliced finely
+* 2 small red chilies, seeded and chopped finely
+* 2 tablespoons cooking oil
+* 1 teaspoon turmeric, ground
+* 6 curry leaves
+* 2 cups coconut milk
+* 1 cup vegetable stock
+* 1 cinnamon stick
+* 10 cm lemon grass (white part only)
 
 Heat a wok with the cooking oil. Saute the onion and cook over moderate heat
 for 10 minutes, or until the onion is golden brown. Remove half the sauteed

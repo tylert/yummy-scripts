@@ -15,7 +15,6 @@ Cauliflower Korma
 * a good pinch of saffron
 * 2 tbs oil
 
-
 Soak saffron in a little hot water.Fry cauliflower in oil until golden brown.
 Remove and drain on kitchen towel and set aside. In the same saucepan fry
 cashew nuts until golden brown remove drain on kitchen towel and set aside. In

@@ -1,25 +1,22 @@
 Chilli Garlic Curry
+-------------------
 
-Prep Time: 10 minutes
-Cook Time: 10 minutes
-Total Time: 20 minutes
-
-3 tbsp rapeseed (canola) oil
-8 garlic cloves, cut into thin slivers
-1/2 onion, finely chopped
-1 tbsp garlic and ginger paste
-2 (or more) fresh green chillies, sliced into thin rings, plus
-extra to serve (optional)
-1 tsp chilli powder
-1 tbsp mixed powder or curry powder
-1 tbsp tandoori masala
-70ml (1/4 cup) tomato purée
-300ml (1 1/4 cups) base curry sauce, heated
-1 handful of dried garlic flakes (optional)
-1 tsp dried fenugreek (methi) leaves
-2 tbsp chopped coriander (cilantro)
-Juice of one lime (optional)
-Salt
+* 3 tbsp rapeseed (canola) oil
+* 8 garlic cloves, cut into thin slivers
+* 1/2 onion, finely chopped
+* 1 tbsp garlic and ginger paste
+* 2 (or more) fresh green chillies, sliced into thin rings, plus
+* extra to serve (optional)
+* 1 tsp chilli powder
+* 1 tbsp mixed powder or curry powder
+* 1 tbsp tandoori masala
+* 70ml (1/4 cup) tomato purée
+* 300ml (1 1/4 cups) base curry sauce, heated
+* 1 handful of dried garlic flakes (optional)
+* 1 tsp dried fenugreek (methi) leaves
+* 2 tbsp chopped coriander (cilantro)
+* Juice of one lime (optional)
+* Salt
 
 Heat the oil in a pan over a medium heat and add the garlic. It is very
 important not to burn the garlic, so watch the pan and move the slivers around
@@ -46,3 +43,7 @@ to taste.
 
 Sprinkle with the chopped coriander (cilantro) and a few more chillies if you
 like. A twist of lime juice is a nice addition.
+
+Prep Time: 10 minutes
+Cook Time: 10 minutes
+Total Time: 20 minutes

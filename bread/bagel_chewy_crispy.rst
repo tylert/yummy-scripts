@@ -9,8 +9,7 @@ Classic Bagels (Soft, Chewy, Crisp)
 * 18 g kosher salt
 * 21 g honey
 * 5 g baking soda
-* Poppy and sesame seeds or other topping
-
+* poppy and sesame seeds or other topping
 
 To the bowl of a stand mixer fitted with a dough hook, add the following
 ingredients in the following order: water, yeast, salt, sugar, oil, honey (or

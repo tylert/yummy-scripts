@@ -1,19 +1,19 @@
 Veggie Biryani
+--------------
 
-1 cup basmati rice, uncooked, rinsed
-1 Tbsp. olive oil
-1/2 tsp. cumin seed
-1/2 tsp, black mustard seed
-1 onion, finely chopped
-2 cloves garlic, minced
-1 large carrot sliced or diced
-1-1/2 water
-1 veggie boullion cube
-1 tsp. garam masala
-1 tsp. ground cumin
-1/2 tsp. ground turmeric
-1/2 tsp. cayenne pepper
-
+* 1 cup basmati rice, uncooked, rinsed
+* 1 Tbsp. olive oil
+* 1/2 tsp. cumin seed
+* 1/2 tsp, black mustard seed
+* 1 onion, finely chopped
+* 2 cloves garlic, minced
+* 1 large carrot sliced or diced
+* 1-1/2 water
+* 1 veggie boullion cube
+* 1 tsp. garam masala
+* 1 tsp. ground cumin
+* 1/2 tsp. ground turmeric
+* 1/2 tsp. cayenne pepper
 
 PLACE rice in medium bowl. Add enough cold water to cover rice. Let stand 10
 min.

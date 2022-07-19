@@ -1,14 +1,14 @@
 Red Enchilada Sauce
+-------------------
 
-2 tablespoons avocado oil (or vegetable oil, or any other neutral oil)
-2 tablespoons all-purpose
-4 tablespoons chili powder, (variety depends on spice level you want)
-1/2 teaspoon garlic powder
-1/2 teaspoon salt
-1/4 teaspoon ground cumin
-1/4 teaspoon dried oregano
-2 cups chicken or vegetable stock
-
+* 2 tablespoons avocado oil (or vegetable oil, or any other neutral oil)
+* 2 tablespoons all-purpose
+* 4 tablespoons chili powder, (variety depends on spice level you want)
+* 1/2 teaspoon garlic powder
+* 1/2 teaspoon salt
+* 1/4 teaspoon ground cumin
+* 1/4 teaspoon dried oregano
+* 2 cups chicken or vegetable stock
 
 Heat oil in a small saucepan over medium-high heat. Add flour and whisk
 together over the heat for one minute. Stir in the remaining seasonings (chili

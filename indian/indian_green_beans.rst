@@ -19,6 +19,6 @@ Cook until desired texture.
 Enjoy plain for lunch or serve with rice or indian flatbread for dinner.
 
 Options:
-Add 1 teaspoon of grated ginger.
-Add a handful of slivered almonds.
-Add diced potatoes and a dash of turmeric.
+* Add 1 teaspoon of grated ginger.
+* Add a handful of slivered almonds.
+* Add diced potatoes and a dash of turmeric.
