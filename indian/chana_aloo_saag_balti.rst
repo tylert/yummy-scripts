@@ -1,7 +1,7 @@
 Chana Aloo Saag Balti
 ---------------------
 
-* 2 tbsp ghee or rapeseed (canola) oil
+* 2 tbsp ghee or canola oil
 * 1/2 tsp cumin seeds
 * 1/2 onion - finely chopped
 * 2 green chillies - finely chopped
@@ -10,12 +10,12 @@ Chana Aloo Saag Balti
 * 1/2 tsp black mustard seeds
 * 1/2 tsp Kashmiri chilli powder (FK chili mix)
 * 1/2 tsp turmeric
-* 2 cups) base curry sauce
+* 2 cups base curry sauce
 * 2 medium potatoes (bite size cubes)
 * 1 large handful of chopped spinach
 * 1 can chickpeas
 * 1 tomato - quartered
-* Salt to taste
+* salt to taste
 
 Heat the oil or ghee in a Balti bowl or similar over medium high heat. When
 hot, stir in the cumin seeds and let them infuse into the oil for about 20
