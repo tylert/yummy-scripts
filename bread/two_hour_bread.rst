@@ -9,7 +9,7 @@ Two Hour Bread
 * 4 cups flour (or as needed)
 * melted butter to coat top when baked
 
-Disolve yeast and sugar in the arm water (stand for 5 mins).
+Disolve yeast and sugar in the warm water (stand for 5 mins).
 
 Add butter, salt and 3 cups of flour.
 
