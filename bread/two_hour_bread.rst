@@ -2,10 +2,10 @@ Two Hour Bread
 --------------
 
 * 1.5 cups warm water
-* 1 Tbsp yeast
-* 2 Tbsp sugar
-* 2 Tbsp butter, soft
-* 1 tsp salt
+* 1 tablespoon yeast
+* 2 tablespoons sugar
+* 2 tablespoons butter, soft
+* 1 teaspoon salt
 * 4 cups flour (or as needed)
 * melted butter to coat top when baked
 

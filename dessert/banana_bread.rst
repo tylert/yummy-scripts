@@ -13,7 +13,7 @@ Banana Bread
 Preheat oven to 350 degrees F.
 
 Mix oil with sugar until sugar is all wet, stir in milk until sugar is mostly
-disolved.  Add banana and mix well
+disolved.  Add banana and mix well.
 
 Add baking soda and baking powder to banana mixture, stir until all disolved.
 Add 1 cup of flour, mix well, add second cup and mix well.
@@ -33,5 +33,3 @@ Zucchini Bread
 * 2 cups shredded zucchini
 * 1 tsp cinnamon
 * you may have to add a little more milk if zucchini is dry.
-
-Tested: 10/10

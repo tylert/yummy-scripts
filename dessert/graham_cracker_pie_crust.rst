@@ -2,8 +2,8 @@ Graham Cracker Pie Crust
 ------------------------
 
 * 1 1/4 cup graham crackers, finely crushed
-* 2 tbsp sugar
-* 1/2 tsp salt
+* 2 tablespoons sugar
+* 1/2 teaspoon salt
 * 3/4 stick butter, melted
 
 Mix crumbs and sugar.  Stir into melted butter.  Mix well.  Press firmly on

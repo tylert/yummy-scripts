@@ -2,7 +2,7 @@ Hash Brown Brunch Casserole
 ---------------------------
 
 * 1 1kg package of frozen hashbrowns, defrosted
-* 1 10oz. can cream of mushroom soup
+* 1 10 ounce can cream of mushroom soup
 * 3 cups of grated old cheddar cheese (about 12 ounces)
 * 1 cup of sour cream
 * 1 cup onion, finely chopped

@@ -1,5 +1,5 @@
-Tortillas
----------
+Naan or Tortillas
+-----------------
 
 * 3 cups all-purpose flour
 * 1 teaspoon salt

@@ -21,8 +21,8 @@ Top
 * 2 cups icing sugar
 * 1/4 cup  butter (around 4 tbsp.)
 * red food colouring
-* 1 tsp. almond extract
-* 2 tsp. water
+* 1 teaspoon almond extract
+* 2 teaspoons water
 
 Beat together all ingredients adding water until thick.  Add 1 tsp. almond
 extract.  Add red food colouring until pink.  Add frosting to bottom layers.

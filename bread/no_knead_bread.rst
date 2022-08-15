@@ -4,8 +4,8 @@ OMFG Delicious No Knead Bread
 (5 out of 5 thumbs up.  30 Helens agree that this is the best bread.)
 
 * 3 cups all purpose flour
-* 1/4 tsp dry active yeast (I use quick rise)
-* 3/4 tsp salt
+* 1/4 teaspoon dry active yeast (I use quick rise)
+* 3/4 teaspoon salt
 * 1 /1/2 cups warm water (not boiling)
 
 Mix flour, yeast and salt in large mixing bowl.

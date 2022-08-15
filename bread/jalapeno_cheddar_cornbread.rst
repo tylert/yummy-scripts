@@ -6,9 +6,9 @@ Jalapeno Cheddar Cornbread
 * 1 cup grape tomatoes
 * 1 cup cornmeal
 * 1 cup all-purpose flour
-* 2 Tbsp sugar
-* 4 tsp baking powder
-* 1/2 tsp salt
+* 2 tablespoons sugar
+* 4 teaspoons baking powder
+* 1/2 teaspoon salt
 * 1 cup milk
 * 1 large egg
 * 1/4 cup cooking oil

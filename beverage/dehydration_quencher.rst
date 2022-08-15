@@ -1,7 +1,7 @@
 Dehydration Quencher
 --------------------
 
-* 8 oz water
-* 1 oz orange juice
-* 2 tsp sugar
+* 8 ounces water
+* 1 ounces orange juice
+* 2 teaspoons sugar
 * pinch of salt

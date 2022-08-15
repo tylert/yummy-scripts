@@ -4,12 +4,12 @@ Fruit Pound Cake
 * 3/4 cup softened butter
 * 1/2 cup regular sugar
 * 1/2 cup golden brown sugar
-* 1 tsp vanilla extract
+* 1 teaspoon vanilla extract
 * 3 eggs (lightly beaten)
 * 1/4 cup milk
 * 1 3/4 cups all purpose flour (sieved)
-* 1 tsp baking powder
-* 9 oz  fresh strawberries, mashed, or other fruit you wish to use
+* 1 teaspoon baking powder
+* 9 ounces fresh strawberries, mashed, or other fruit you wish to use
 
 Preheat oven to 310 F. Grease or line your loaf pan.
 Cream the butter and sugar until a pale light colour.

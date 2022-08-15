@@ -1,7 +1,7 @@
 Classic Bagels (Soft, Chewy, Crisp)
 -----------------------------------
 
-* 850 g High gluten flour (such as King Arthur's Sir Lancelot HG flour)
+* 850 g high gluten flour (such as King Arthur's Sir Lancelot HG flour)
 * 475 g water
 * 48 g canola oil See notes.
 * 36 g sugar

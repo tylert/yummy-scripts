@@ -1,4 +1,4 @@
-Soy Milk And Tofu
+Soy Milk and Tofu
 -----------------
 
 In order to make soy milk, you need two cups of soy beans and six cups of

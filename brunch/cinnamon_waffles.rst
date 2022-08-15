@@ -2,11 +2,11 @@ Cinnamon Waffles
 ----------------
 
 * 4 cups flour
-* 4 tsp baking powder
-* 4 tbsp sugar
-* 1 tbsp cinnamon
-* 1 tsp vanilla extract
-* 4 tbsp melted butter (or oil of your choice)
+* 4 teaspoon baking powder
+* 4 tablespoons sugar
+* 1 tablespoon cinnamon
+* 1 teaspoon vanilla extract
+* 4 tablespoons melted butter (or oil of your choice)
 * 4 cups vanilla almond milk (or milk of your choice)
 
 In a large bowl combine all dry ingredients.

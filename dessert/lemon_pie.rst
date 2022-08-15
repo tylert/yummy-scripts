@@ -3,14 +3,14 @@ Lemon Meringue Pie
 
 * 1 nine-inch, pricked, baked pastry shell
 * 2/3 cup granulated sugar
-* 2 tbsp all-purpose flour
-* 3 tbsp cornstarch
-* 1/4 tsp salt
+* 2 tablespoons all-purpose flour
+* 3 tablespoons cornstarch
+* 1/4 teaspoon salt
 * 1 1/2 cups hot water
 * 3 eggs, separated
-* 2 lemons (grate rind, then extract 6 tbsp juice)
-* 2 tsp butter
-* 6 tbsp granulated sugar
+* 2 lemons (grate rind, then extract 6 tablespoons juice)
+* 2 teaspoon butter
+* 6 tablespoons granulated sugar
 
 In a saucepan, combine the 2/3 cup sugar, flour, cornstarch and salt, then
 stir in the hot water.  Cook over medium heat, stirring constantly, until

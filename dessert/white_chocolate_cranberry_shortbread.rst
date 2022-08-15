@@ -2,11 +2,12 @@ White Chocolate Cranberry Shortbread
 ------------------------------------
 
 * 1 cup unsalted butter, room temperature
-* 1/2 cup powder sugar plus 2 tbsp powder sugar
+* 1/2 cup powdered sugar
+* 2 tablespoons powdered sugar
 * 1/4 cup cornstarch
 * 1 1/2 cups all purpose flour
-* 1/2 tsp salt
-* 1 tsp vanilla extract
+* 1/2 teaspoon salt
+* 1 teaspoon vanilla extract
 * 1 cup chopped dried cranberries
 * 1/2 cup white chocolate chips
 

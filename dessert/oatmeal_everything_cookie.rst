@@ -4,11 +4,11 @@ Oatmeal Everything Cookie
 * 1 cup butter softened
 * 1 cup brown sugar, packed
 * 2 eggs
-* 1 tsp vanilla
-* 1 tbsp cinnamon
+* 1 teaspoon vanilla
+* 1 tablespoon cinnamon
 * 2 cups all-purpose flour
-* 1 tsp baking powder
-* 1/2 tsp baking soda
+* 1 teaspoon baking powder
+* 1/2 teaspoon baking soda
 * 2 cups rolled oats (I used quick oats)
 * 3/4 shredded coconut
 * 2 cups semi-sweet chocolate chips or 1 cup dried cranberries
