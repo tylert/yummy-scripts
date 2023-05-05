@@ -9,7 +9,7 @@ Lemon Meringue Pie
 * 1 1/2 cups hot water
 * 3 eggs, separated
 * 2 lemons (grate rind, then extract 6 tablespoons juice)
-* 2 teaspoon butter
+* 2 teaspoons butter
 * 6 tablespoons granulated sugar
 
 In a saucepan, combine the 2/3 cup sugar, flour, cornstarch and salt, then
