@@ -2,15 +2,16 @@ Overnight Oats
 --------------
 
 * 1/2 cup oats (50-50 large flake, spelt)
+* 2 teaspoons pumpkin seeds
 * 1 teaspoon hemp seeds
 * 1 teaspoon pea protein
 * 1/2 teaspoon cinnamon
-* some almonds
+* 3 dates, chopped
+* 12 almonds
 * vanilla almond milk (quantity at the discretion of the individual)
 
-Other additional ingredients may be added such as:
+Other additional ingredients may be added/substituted such as:
 
-* dates
 * raisins
 * fresh or frozen fruit pieces
 
